@@ -12,8 +12,8 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |**2**|**ROH on Honor Club 118**||[**HC**](https://www.watchroh.com/player/28704/stream)|
 |**3**|**Collision 95**||[**HBO**](https://play.max.com/video/watch/df73a1c7-f7a5-499d-a880-156e7cb7fc46/db38d690-a1d2-49a0-9ecc-7e8180416905)|
 |4|Hey! (EW): Leila Grey lets it all out|[AEW](http://youtu.be/9WvUkl1M4U0)||
-|**6**|**Dynamite 296: Fyter Fest 2025**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-23/dynamite-fyter-fest-2025) • [**HBO**](https://play.max.com/video/watch/800345bf-b1e2-4f75-9929-eb825a3c514a/e325ea9d-8509-44ff-aa2a-4450d8f1ab5a)|
-|**7**|**Collision 96: Fyter Fest 2025**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-24/collision-fyter-fest-2025) • [**HBO**](https://play.max.com/video/watch/e242a83d-ff56-4539-90b1-53787e18a838/391a3949-d377-453e-83fd-9c0a12d6794a36)|
+|**6**|**Dynamite 296: Fyter Fest 2025**||[**HBO**](https://play.max.com/video/watch/800345bf-b1e2-4f75-9929-eb825a3c514a/e325ea9d-8509-44ff-aa2a-4450d8f1ab5a)|
+|**7**|**Collision 96: Fyter Fest 2025**||[**HBO**](https://play.max.com/video/watch/e242a83d-ff56-4539-90b1-53787e18a838/391a3949-d377-453e-83fd-9c0a12d6794a36)|
 |8|Vlog 444: TAY IS BACK!|[SG](http://youtu.be/RiqREEws3WY)
 |**9**|**ROH on Honor Club 119**||[**HC**](https://www.watchroh.com/player/28705/stream)|
 |10|Hey! (EW): Zach Gowen: One Leg, Many Problems|[AEW](http://youtu.be/FJIKcAHhZe4)|
