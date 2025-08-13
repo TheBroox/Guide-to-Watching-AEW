@@ -63,6 +63,9 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |**54**|**ROH on Honor Club 127**||[**HC**](https://www.watchroh.com/player/28724/stream)
 |52|Hey! (EW): The Crazy Life of Kota Ibushi|[AEW](http://youtu.be/b6E2GW7Gdt0)
 |**53**|**Dynamite 304**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-32/august-6-2025) • [**HBO**](https://play.hbomax.com/event/a71b0581-a471-5937-98bc-0c56413ad8b7)|
+|54|Close Up w/ Renee Paquette: Blake Christian & Lee Johnson|[AEW](http://youtu.be/z4FwvJ3G_nY)||
+|**55**|**Collision 104**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-33/august-9-2025) • [**HBO**](https://play.hbomax.com/event/d2af961c-0d9c-5eb7-baa3-6014c1a789a4)|
+|56|Hey! (EW): RUSH: "If You Mess with the Bull..."|[AEW](http://youtu.be/vVC5VbLw0-0)||
 
 # Key
 
