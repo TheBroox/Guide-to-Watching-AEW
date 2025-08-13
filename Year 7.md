@@ -59,7 +59,7 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |**50**|**Collision 103**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-31/july-26-2025) • [**HBO**](https://play.hbomax.com/video/watch/2c00780c-7bda-4780-80f1-861f82f3d79e/e27238ee-8b32-419b-9697-fca5365eb77c)
 |51|Hey! (EW): Shark Boy Attacks!|[AEW](http://youtu.be/W_Y4HE6hje4)
 |**52**|**Dynamite 304**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-31/july-30-2025) • [**HBO**](https://play.hbomax.com/video/watch/515acda5-08b6-4bdc-a98d-5bdd5e7eac12/96ae1107-b320-4350-9a68-34f2c6072e2c)|
-|**53**|**Collision 104**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-32/july-31-2025) • [**HBO**](https://play.hbomax.com/event/92d20666-aaa9-5be9-94ea-4087ea4b7fa6)|
+|**53**|**Collision 104**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-32/july-31-2025) • [**HBO**](https://play.hbomax.com/video/watch/83e79f18-e243-400a-9eea-9830faf2d8d3/ba548641-5e3e-4fb2-88c3-2a4e4f5e3b09)|
 |**54**|**ROH on Honor Club 127**||[**HC**](https://www.watchroh.com/player/28724/stream)
 |52|Hey! (EW): The Crazy Life of Kota Ibushi|[AEW](http://youtu.be/b6E2GW7Gdt0)
 |**53**|**Dynamite 305**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-32/august-6-2025) • [**HBO**](https://play.hbomax.com/event/a71b0581-a471-5937-98bc-0c56413ad8b7)|
