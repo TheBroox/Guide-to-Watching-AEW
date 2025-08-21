@@ -72,6 +72,7 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |**63**|**Collision 106**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-34/august-16-2025) • [**HBO**](https://play.hbomax.com/event/6e27f6ae-f827-57f1-be9d-3e921f9172e7)|
 |64|Hey! (EW): The Toxic Spider Thekla unleashed!|[AEW](http://youtu.be/JLmq4DFZxfI)||
 |**65**|**Dynamite 307**||[**HBO**](https://play.hbomax.com/event/d83c2f2a-3a8c-54dd-91d9-06bc4553e6aa)|
+|**--**|**ROH on HonorClub 130**||[**HC**](https://www.watchroh.com/player-live/26076)|
 |**--**|**Forbidden Door: Zero Hour**|[**AEW**](http://youtu.be/_MH4rs_SjvQ) • [**Amazon**](https://www.amazon.com/gp/video/detail/B0FK21BJNL/)||
 |***--***|***Forbidden Door***||[**AEW**](http://youtu.be/D_gLYv2fZng) • [***Amazon***](https://www.amazon.com/Forbidden-Door-London-2025/dp/B0F8N9CBT4) • [***PPV***](https://www.ppv.com/event/forbidden-door-25)|
 
