@@ -62,12 +62,12 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |**53**|**Collision 104**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-32/july-31-2025) • [**HBO**](https://play.hbomax.com/video/watch/83e79f18-e243-400a-9eea-9830faf2d8d3/ba548641-5e3e-4fb2-88c3-2a4e4f5e3b09)|
 |**54**|**ROH on Honor Club 127**||[**HC**](https://www.watchroh.com/player/28724/stream)
 |55|Hey! (EW): The Crazy Life of Kota Ibushi|[AEW](http://youtu.be/b6E2GW7Gdt0)
-|**56**|**Dynamite 305**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-32/august-6-2025) • [**HBO**](https://play.hbomax.com/event/a71b0581-a471-5937-98bc-0c56413ad8b7)|
+|**56**|**Dynamite 305**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-32/august-6-2025) • [**HBO**](https://play.hbomax.com/video/watch/38fb032f-9b06-4c21-8190-5a2c90656ddd/fa95cb9e-f951-41f8-918e-a6ae0a23b5fe)|
 |57|Close Up w/ Renee Paquette: Blake Christian & Lee Johnson|[AEW](http://youtu.be/z4FwvJ3G_nY)||
 |**58**|**ROH on HonorClub 128**||[**HC**](https://www.watchroh.com/player/28726/stream)|
-|**59**|**Collision 105**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-33/august-9-2025) • [**HBO**](https://play.hbomax.com/event/d2af961c-0d9c-5eb7-baa3-6014c1a789a4)|
+|**59**|**Collision 105**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-33/august-9-2025) • [**HBO**](https://play.hbomax.com/video/watch/986cfbb3-f61e-4b11-919b-ef33be496c4b/794a6942-3818-45bf-a14b-f65fdd73b3cb)|
 |60|Hey! (EW): RUSH: "If You Mess with the Bull..."|[AEW](http://youtu.be/vVC5VbLw0-0)||
-|**61**|**Dynamite 306**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-33/august-13-2025) • [**HBO**](https://play.hbomax.com/event/ae86f736-4130-5090-a10a-ff9e5d8bbe87)|
+|**61**|**Dynamite 306**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-33/august-13-2025) • [**HBO**](https://play.hbomax.com/video/watch/4a8f9c27-8d5c-4c9c-a49e-32e489f44cea/d1391a6d-ae3f-4f64-a31a-6a5e2e4e127e)|
 |**62**|**ROH on HonorClub 129**||[**HC**](https://www.watchroh.com/player/28752/stream)|
 |**63**|**Collision 106**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-34/august-16-2025) • [**HBO**](https://play.hbomax.com/event/6e27f6ae-f827-57f1-be9d-3e921f9172e7)|
 |64|Hey! (EW): The Toxic Spider Thekla unleashed!|[AEW](http://youtu.be/JLmq4DFZxfI)||
