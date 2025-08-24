@@ -70,7 +70,7 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |**61**|**Dynamite 306**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-33/august-13-2025) • [**HBO**](https://play.hbomax.com/video/watch/4a8f9c27-8d5c-4c9c-a49e-32e489f44cea/d1391a6d-ae3f-4f64-a31a-6a5e2e4e127e)|
 |**62**|**ROH on HonorClub 129**||[**HC**](https://www.watchroh.com/player/28752/stream)|
 |**63**|**ROH Special Episode**|[**ROH**](http://youtu.be/GcEvGQmvFEY)||
-|**64**|**Collision 106**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-34/august-16-2025) • [**HBO**](https://play.hbomax.com/event/6e27f6ae-f827-57f1-be9d-3e921f9172e7)|
+|**64**|**Collision 106**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-34/august-16-2025) • [**HBO**](https://play.hbomax.com/video/watch/5c2c7dfb-cb08-494a-b840-6598c8049e91/a7d9b1c6-e620-4e23-973e-9338232c7a12)|
 |65|Hey! (EW): The Toxic Spider Thekla unleashed!|[AEW](http://youtu.be/JLmq4DFZxfI)||
 |**66**|**Dynamite 307**||[**HBO**](https://play.hbomax.com/event/d83c2f2a-3a8c-54dd-91d9-06bc4553e6aa)|
 |**67**|**ROH on HonorClub 130**||[**HC**](https://www.watchroh.com/player/28753/stream)|
