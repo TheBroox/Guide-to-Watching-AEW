@@ -69,9 +69,10 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |60|Hey! (EW): RUSH: "If You Mess with the Bull..."|[AEW](http://youtu.be/vVC5VbLw0-0)||
 |**61**|**Dynamite 306**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-33/august-13-2025) • [**HBO**](https://play.hbomax.com/video/watch/4a8f9c27-8d5c-4c9c-a49e-32e489f44cea/d1391a6d-ae3f-4f64-a31a-6a5e2e4e127e)|
 |**62**|**ROH on HonorClub 129**||[**HC**](https://www.watchroh.com/player/28752/stream)|
-|**63**|**Collision 106**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-34/august-16-2025) • [**HBO**](https://play.hbomax.com/event/6e27f6ae-f827-57f1-be9d-3e921f9172e7)|
-|64|Hey! (EW): The Toxic Spider Thekla unleashed!|[AEW](http://youtu.be/JLmq4DFZxfI)||
-|**65**|**Dynamite 307**||[**HBO**](https://play.hbomax.com/event/d83c2f2a-3a8c-54dd-91d9-06bc4553e6aa)|
+|**63**|**ROH Special Episode**|[**ROH**](http://youtu.be/GcEvGQmvFEY)||
+|**64**|**Collision 106**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-34/august-16-2025) • [**HBO**](https://play.hbomax.com/event/6e27f6ae-f827-57f1-be9d-3e921f9172e7)|
+|65|Hey! (EW): The Toxic Spider Thekla unleashed!|[AEW](http://youtu.be/JLmq4DFZxfI)||
+|**66**|**Dynamite 307**||[**HBO**](https://play.hbomax.com/event/d83c2f2a-3a8c-54dd-91d9-06bc4553e6aa)|
 |**--**|**ROH on HonorClub 130**||[**HC**](https://www.watchroh.com/player-live/26076)|
 |**--**|**Forbidden Door: Zero Hour**|[**AEW**](http://youtu.be/_MH4rs_SjvQ) • [**Amazon**](https://www.amazon.com/gp/video/detail/B0FK21BJNL/)||
 |***--***|***Forbidden Door***||[**AEW**](http://youtu.be/D_gLYv2fZng) • [***Amazon***](https://www.amazon.com/Forbidden-Door-London-2025/dp/B0F8N9CBT4) • [***PPV***](https://www.ppv.com/event/forbidden-door-25)|
