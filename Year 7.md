@@ -76,6 +76,7 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |**67**|**ROH on HonorClub 130**||[**HC**](https://www.watchroh.com/player/28753/stream)|
 |68|SCOTTISH TASTE TEST! AEW Stars try out some famous treats from Scotland!|[AEW](http://youtu.be/lUndxEapWS8)||
 |**69**|**Collision 107**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-35/august-23-2025) • [**HBO**](https://play.hbomax.com/video/watch/42d6ed96-be80-5468-90b4-6973f1e76609/251ead23-5077-4f6f-85be-34086bce677f)^[7]|
+|70|Countdown to Forbidden Door|[AEW](http://youtu.be/CXUrGWb7ULI)|[TNT](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/countdown-to-forbidden-door-2025) • [HBO](https://play.hbomax.com/video/watch/42d6ed96-be80-5468-90b4-6973f1e76609/251ead23-5077-4f6f-85be-34086bce677f)^[7]|
 |**--**|**Forbidden Door: Zero Hour**|[**AEW**](http://youtu.be/_MH4rs_SjvQ) • [**Amazon**](https://www.amazon.com/gp/video/detail/B0FK21BJNL/)||
 |***--***|***Forbidden Door***||[**AEW**](http://youtu.be/D_gLYv2fZng) • [***Amazon***](https://www.amazon.com/Forbidden-Door-London-2025/dp/B0F8N9CBT4) • [***PPV***](https://www.ppv.com/event/forbidden-door-25)|
 
