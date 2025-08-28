@@ -89,6 +89,7 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |80|Forbidden Door Exclusive - Ricochet succinctly explains why he and GOA attacked The Hurt Syndicate|[AEW](http://youtu.be/1nIRZKXk_LA)||
 |81|Forbidden Door Post Match - Toni Storm, AEW Women's World Champion, says goodnight to LONDON!|[AEW](http://youtu.be/nlX7YhP2PrQ)||
 |82|Guess Who Called the Bucks|[AEW](http://youtu.be/egPW-rOj1J4)||
+|83|Close Up w/ Renee Paquette: Tay Melo|[AEW](http://youtu.be/zVZCE3CGPxs)||
 
 # Key
 
