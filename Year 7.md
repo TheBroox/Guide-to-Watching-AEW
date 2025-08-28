@@ -90,6 +90,8 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |81|Forbidden Door Post Match - Toni Storm, AEW Women's World Champion, says goodnight to LONDON!|[AEW](http://youtu.be/nlX7YhP2PrQ)||
 |82|Guess Who Called the Bucks|[AEW](http://youtu.be/egPW-rOj1J4)||
 |83|Close Up w/ Renee Paquette: Tay Melo|[AEW](http://youtu.be/zVZCE3CGPxs)||
+|**84**|**Dynamite 308**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-35/august-27-2025) • [**HBO**](https://play.hbomax.com/event/dce38a31-d59d-5120-8791-78515b4f746b)|
+|85|Dynamite EXCLUSIVE: Thank You Taz! AEW honors Taz at the legendary 2300 Arena!|[AEW](http://youtu.be/GwVinDYSPgg)||
 
 # Key
 
