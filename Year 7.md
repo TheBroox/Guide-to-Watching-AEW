@@ -72,7 +72,7 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |**63**|**ROH Special Episode**|[**ROH**](http://youtu.be/GcEvGQmvFEY)||
 |**64**|**Collision 106**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-34/august-16-2025) • [**HBO**](https://play.hbomax.com/video/watch/5c2c7dfb-cb08-494a-b840-6598c8049e91/a7d9b1c6-e620-4e23-973e-9338232c7a12)|
 |65|Hey! (EW): The Toxic Spider Thekla unleashed!|[AEW](http://youtu.be/JLmq4DFZxfI)||
-|**66**|**Dynamite 307**||[**HBO**](https://play.hbomax.com/event/d83c2f2a-3a8c-54dd-91d9-06bc4553e6aa)|
+|**66**|**Dynamite 307**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-34/august-20-2025) • [**HBO**](https://play.hbomax.com/video/watch/d71d0c19-317a-4cf2-ab55-790c2b90d153/6bb81405-2101-4a8a-ae35-b923287ab1f8)|
 |**67**|**ROH on HonorClub 130**||[**HC**](https://www.watchroh.com/player/28753/stream)|
 |68|SCOTTISH TASTE TEST! AEW Stars try out some famous treats from Scotland!|[AEW](http://youtu.be/lUndxEapWS8)||
 |69|What Should We Re-Name Our Finisher?|[BTE](http://youtu.be/Pkm8kPzlhio)||
