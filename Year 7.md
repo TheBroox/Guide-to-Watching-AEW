@@ -93,6 +93,8 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |84|Close Up w/ Renee Paquette: Tay Melo|[AEW](http://youtu.be/zVZCE3CGPxs)||
 |**85**|**Dynamite 308**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-35/august-27-2025) • [**HBO**](https://play.hbomax.com/event/dce38a31-d59d-5120-8791-78515b4f746b)|
 |86|Dynamite EXCLUSIVE: Thank You Taz! AEW honors Taz at the legendary 2300 Arena!|[AEW](http://youtu.be/GwVinDYSPgg)||
+|**87**|**Death Before Dishonor: Zero Hour**|[**AEW**](http://youtu.be/LWahiDLaAec)|[**HC**](https://www.watchroh.com/player/28758/stream)^[7]|
+|***88***|***Death Before Dishonor***|[***ROH***](http://youtu.be/Ql7pr7QRuN0)|[***HC***](https://www.watchroh.com/player/28758/stream)^[7]|
 
 # Key
 
