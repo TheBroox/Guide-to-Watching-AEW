@@ -95,6 +95,11 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |86|Dynamite EXCLUSIVE: Thank You Taz! AEW honors Taz at the legendary 2300 Arena!|[AEW](http://youtu.be/GwVinDYSPgg)||
 |**87**|**Death Before Dishonor: Zero Hour**|[**AEW**](http://youtu.be/LWahiDLaAec)|[**HC**](https://www.watchroh.com/player/28758/stream)^[7]|
 |***88***|***Death Before Dishonor***|[***ROH***](http://youtu.be/Ql7pr7QRuN0)|[***HC***](https://www.watchroh.com/player/28758/stream)^[7]|
+|89|FINALLY CHAMPS! STP, New ROH 6-Man Tag Champions, EARNED IT! | ROH Death Before Dishonor|[ROH](http://youtu.be/baF3xU_2UMg)||
+|90|Deonna Purrazzo comes face to face with Trish Adora!|[ROH](http://youtu.be/tL4zASn6aGc)||
+|91|Swirl?! Blake Christian & Lee Johnson put the division on NOTICE!|[ROH](http://youtu.be/FVvxd8l3mZE)||
+|92|Who did Bandido, ROH World Champion, dedicate his VICTORY to?|[RPH](http://youtu.be/8uFMAg31TOk)||
+|93|ROH Women's World Champion Athena confronts Blue Meanie?!|[ROH](http://youtu.be/M3UVZ7P54gs)||
 
 # Key
 
