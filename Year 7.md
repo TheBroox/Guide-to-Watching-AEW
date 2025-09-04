@@ -103,6 +103,9 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |94|Vlog 447: Asking STING to come out of Retirement|[SG](http://youtu.be/xEwjZLWmYIg)||
 |**95**|**Collision 108**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-36/august-30-2025) • [**HBO**](https://play.hbomax.com/event/5ef29b49-beb4-57fd-abbc-ca1ccb2e0799)|
 |96|Hey! (EW): Grado goes nuts!|[AEW](http://youtu.be/bqNRzukEd44)||
+|97|Taz enters the 2300 Arena Hardcore Hall of Fame before AEW Dynamite!|[AEW](http://youtu.be/WlveLlqk7Vc)||
+|**98**|**Dynamite 309**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-36/september-3-2025) • [**HBO**](https://play.hbomax.com/event/26762ce6-dd12-598c-aa77-8f2a2ce1245a)|
+|99|EXCLUSIVE: Kenny Omega stretchered out after BRUTAL assault!|[AEW](http://youtu.be/hynJyZ8IGAA)||
 
 # Key
 
