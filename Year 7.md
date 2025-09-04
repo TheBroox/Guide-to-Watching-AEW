@@ -101,6 +101,8 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |92|Who did Bandido, ROH World Champion, dedicate his VICTORY to?|[RPH](http://youtu.be/8uFMAg31TOk)||
 |93|ROH Women's World Champion Athena confronts Blue Meanie?!|[ROH](http://youtu.be/M3UVZ7P54gs)||
 |94|Vlog 447: Asking STING to come out of Retirement|[SG](http://youtu.be/xEwjZLWmYIg)||
+|**95**|**Collision 108**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-36/august-30-2025) • [**HBO**](https://play.hbomax.com/event/5ef29b49-beb4-57fd-abbc-ca1ccb2e0799)|
+|96|Hey! (EW): Grado goes nuts!|[AEW](http://youtu.be/bqNRzukEd44)||
 
 # Key
 
