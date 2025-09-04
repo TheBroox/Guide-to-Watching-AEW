@@ -30,11 +30,11 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |**21**|**Collision 98**||[**HBO**](https://play.hbomax.com/video/watch/61f65daa-38be-43e0-91e2-0bb685bf69a3/dfd46d11-5773-4af5-b70b-cd367ac3bbfd)|
 |22|Hey! (EW): Mini Madness! KeMonito & KeMalito go crazy!|[AEW](http://youtu.be/FIa0g5c1QXw)||
 |**23**|**Dynamite 299**||[**HBO**](https://play.hbomax.com/video/watch/e95ede6e-e90c-4ae0-9f39-8fdc602b08f8/c92a2deb-4cb5-45e2-b397-59aa951bba45)|
-|**24**|**Collision 99**||[**TBS**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-27/june-26-2025) • [**HBO**](https://play.hbomax.com/video/watch/88e6ce80-30e5-4714-a9b3-afc990033686/3fa908a9-a5a2-454c-a9c1-3caa51d901f5)|
+|**24**|**Collision 99**||[**HBO**](https://play.hbomax.com/video/watch/88e6ce80-30e5-4714-a9b3-afc990033686/3fa908a9-a5a2-454c-a9c1-3caa51d901f5)|
 |**25**|**ROH on Honor Club 122 - Global Wars: Mexico**|[ROH](http://youtu.be/nl8KX6AixjU)|[**HC**](https://www.watchroh.com/player/28711/stream)|
 |26|Hey! (EW): Bryan Keith: The Bad Apple Bites Back!|[**AEW**](http://youtu.be/1Fg3hjtlHFQ)
 |27|Close-Up w/ Renee Paquette: Speedball Mike Bailey|[AEW](http://youtu.be/NoulLMejYRs)
-|**28**|**Dynamite 300**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-27/july-2-2025) • [**HBO**](https://play.hbomax.com/video/watch/5a07db65-3c82-44d0-a630-bad053cf88a5/b2e876b5-fde9-4632-9643-75b3bfac3d24)
+|**28**|**Dynamite 300**||[**HBO**](https://play.hbomax.com/video/watch/5a07db65-3c82-44d0-a630-bad053cf88a5/b2e876b5-fde9-4632-9643-75b3bfac3d24)
 |**29**|**ROH on Honor Club 123**||[**HC**](https://www.watchroh.com/player/28716/stream)
 |**30**|**Collision 100**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-28/july-5-2025) • [**HBO**](https://play.hbomax.com/video/watch/77b4ca1c-9bd2-46e8-975f-3914e7b14365/11ce8689-a8d1-49e1-988e-6bba4c22c0ff)
 |31|Hey! (EW): Megan Bayne & Penelope Ford Wreck Sh!t|[AEW](http://youtu.be/X0HmwQRnH7s)
