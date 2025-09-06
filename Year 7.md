@@ -96,7 +96,7 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |**87**|**ROH on HonorClub 131**||[**HC**](https://www.watchroh.com/player/28757/stream)|
 |**88**|**Death Before Dishonor: Zero Hour**|[**AEW**](http://youtu.be/LWahiDLaAec)|[**HC**](https://www.watchroh.com/player/28758/stream)^[7]|
 |***89***|***Death Before Dishonor***|[***ROH***](http://youtu.be/Ql7pr7QRuN0)|[***HC***](https://www.watchroh.com/player/28758/stream)^[7]|
-|90|FINALLY CHAMPS! STP, New ROH 6-Man Tag Champions, EARNED IT! | ROH Death Before Dishonor|[ROH](http://youtu.be/baF3xU_2UMg)||
+|90|FINALLY CHAMPS! STP, New ROH 6-Man Tag Champions, EARNED IT!|[ROH](http://youtu.be/baF3xU_2UMg)||
 |91|Swirl?! Blake Christian & Lee Johnson put the division on NOTICE!|[ROH](http://youtu.be/FVvxd8l3mZE)||
 |92|ROH Women's World Champion Athena confronts Blue Meanie?!|[ROH](http://youtu.be/M3UVZ7P54gs)||
 |93|Vlog 447: Asking STING to come out of Retirement|[SG](http://youtu.be/xEwjZLWmYIg)||
@@ -105,7 +105,7 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |96|Taz enters the 2300 Arena Hardcore Hall of Fame before AEW Dynamite!|[AEW](http://youtu.be/WlveLlqk7Vc)||
 |**97**|**Dynamite 309**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-36/september-3-2025) • [**HBO**](https://play.hbomax.com/event/26762ce6-dd12-598c-aa77-8f2a2ce1245a)|
 |98|EXCLUSIVE: Kenny Omega stretchered out after BRUTAL assault!|[AEW](http://youtu.be/hynJyZ8IGAA)||
-|**101**|**ROH on Honor Club 132**||[**HC**](https://www.watchroh.com/player/28761/stream)|
+|**99**|**ROH on Honor Club 132**||[**HC**](https://www.watchroh.com/player/28761/stream)|
 |***---***|***All Out Toronto***||[***HBO***](https://play.hbomax.com/event/ff0757f0-4d69-50f6-ac69-4fc1b43898f1) • [***PPV***](https://www.ppv.com/event/all-out-25)|
 
 # Key
