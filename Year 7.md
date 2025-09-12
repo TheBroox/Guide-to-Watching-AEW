@@ -36,15 +36,15 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |27|Close-Up w/ Renee Paquette: Speedball Mike Bailey|[AEW](http://youtu.be/NoulLMejYRs)
 |**28**|**Dynamite 300**||[**HBO**](https://play.hbomax.com/video/watch/5a07db65-3c82-44d0-a630-bad053cf88a5/b2e876b5-fde9-4632-9643-75b3bfac3d24)
 |**29**|**ROH on Honor Club 123**||[**HC**](https://www.watchroh.com/player/28716/stream)
-|**30**|**Collision 100**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-28/july-5-2025) • [**HBO**](https://play.hbomax.com/video/watch/77b4ca1c-9bd2-46e8-975f-3914e7b14365/11ce8689-a8d1-49e1-988e-6bba4c22c0ff)
+|**30**|**Collision 100**||[**HBO**](https://play.hbomax.com/video/watch/77b4ca1c-9bd2-46e8-975f-3914e7b14365/11ce8689-a8d1-49e1-988e-6bba4c22c0ff)
 |31|Hey! (EW): Megan Bayne & Penelope Ford Wreck Sh!t|[AEW](http://youtu.be/X0HmwQRnH7s)
-|**32**|**Dynamite 301**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-28/july-9-2025) • [**HBO**](https://play.hbomax.com/video/watch/78c75bc9-ca1b-4cdd-82b3-10e00dd22a65/6126dbe8-4a66-4bd0-9324-6c155cd7de4c)|
+|**32**|**Dynamite 301**||[**HBO**](https://play.hbomax.com/video/watch/78c75bc9-ca1b-4cdd-82b3-10e00dd22a65/6126dbe8-4a66-4bd0-9324-6c155cd7de4c)|
 |33|The Players’ Tribune & AEW Present Two In One: The Briscoe Story|[AEW](http://youtu.be/QAOE_DYMRD4)
 |**34**|**ROH on Honor Club 124**||[**HC**](https://www.watchroh.com/player/28719/stream)|
-|**35**|**Collision 101**||[**TBS**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-29/collision-7102025) • [**HBO**](https://play.hbomax.com/video/watch/2b9bfd80-0737-4e74-9cae-caf0eaadf64d/e50d8bfc-72ad-4f9e-a89a-047427f816bb)|
+|**35**|**Collision 101**||[**HBO**](https://play.hbomax.com/video/watch/2b9bfd80-0737-4e74-9cae-caf0eaadf64d/e50d8bfc-72ad-4f9e-a89a-047427f816bb)|
 |**36**|**Supercard of Honor: Zero Hour**|[ROH](http://youtu.be/PH3GSxNuKxU)|[**HC**](https://www.watchroh.com/player/28720/stream)^[7]
 |***37***|***Supercard of Honor***||[***HC***](https://www.watchroh.com/player/28720/stream)^[7]
-|38|Countdown to AEW All In Texas|[AEW](http://youtu.be/HYCSQGuVBrA)|[TNT](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/countdown-to-all-in-2025)|
+|38|Countdown to AEW All In Texas|[AEW](http://youtu.be/HYCSQGuVBrA)||
 |39|Close-Up w/ Renee Paquette:The Young Bucks|[AEW](http://youtu.be/UMh1f2xBDjk)
 |**40**|**All In Texas: Zero Hour**|[**AEW**](http://youtu.be/dRblKqc0J6o)
 |***41***|***All In Texas***||[***Amazon***](https://www.amazon.com/AEW-All-In-Texas/dp/B0F7TR3TWS) • [***Triller***](https://www.trillertv.com/watch/aew-all-in-texas-2025/2phas/) • [***PPV***](https://www.ppv.com/event/ec9fcf2b-06a3-4d7c-9433-783840f0be8d)|
