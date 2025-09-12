@@ -99,10 +99,10 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |90|Swirl?! Blake Christian & Lee Johnson put the division on NOTICE!|[ROH](http://youtu.be/FVvxd8l3mZE)||
 |91|ROH Women's World Champion Athena confronts Blue Meanie?!|[ROH](http://youtu.be/M3UVZ7P54gs)||
 |92|Vlog 447: Asking STING to come out of Retirement|[SG](http://youtu.be/xEwjZLWmYIg)||
-|**93**|**Collision 108**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-36/august-30-2025) • [**HBO**](https://play.hbomax.com/event/5ef29b49-beb4-57fd-abbc-ca1ccb2e0799)|
+|**93**|**Collision 108**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-36/august-30-2025) • [**HBO**](https://play.hbomax.com/video/watch/48babe4c-1e24-49df-a2af-37cd2c334777/2f397398-85cd-4d6d-81ca-7fad9cca9830)|
 |94|Hey! (EW): Grado goes nuts!|[AEW](http://youtu.be/bqNRzukEd44)||
 |95|Taz enters the 2300 Arena Hardcore Hall of Fame before AEW Dynamite!|[AEW](http://youtu.be/WlveLlqk7Vc)||
-|**96**|**Dynamite 309**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-36/september-3-2025) • [**HBO**](https://play.hbomax.com/event/26762ce6-dd12-598c-aa77-8f2a2ce1245a)|
+|**96**|**Dynamite 309**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-36/september-3-2025) • [**HBO**](https://play.hbomax.com/video/watch/1ae6a542-6fa9-410d-baab-fea3f3ddb16c/b7c5f162-cc03-4934-9f3d-f6979c82c7b3)|
 |97|EXCLUSIVE: Kenny Omega stretchered out after BRUTAL assault!|[AEW](http://youtu.be/hynJyZ8IGAA)||
 |**98**|**ROH on Honor Club 132**||[**HC**](https://www.watchroh.com/player/28761/stream)|
 |**99**|**ROH Special Episode**|[**ROH**](http://youtu.be/jUaGwg3Zk0o)||
