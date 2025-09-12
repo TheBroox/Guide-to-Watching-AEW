@@ -81,7 +81,7 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |72|Countdown to Forbidden Door|[AEW](http://youtu.be/CXUrGWb7ULI)|[TNT](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/countdown-to-forbidden-door-2025) • [HBO](https://play.hbomax.com/video/watch/42d6ed96-be80-5468-90b4-6973f1e76609/251ead23-5077-4f6f-85be-34086bce677f)^[7]|
 |73|ROH World Champion Bandido takes a tour of London before Forbidden Door!|[AEW](http://youtu.be/sHyGnT_oxmI)||
 |**74**|**Forbidden Door: Zero Hour**|[**AEW**](http://youtu.be/_MH4rs_SjvQ) • [**Amazon**](https://www.amazon.com/gp/video/detail/B0FK21BJNL/)||
-|***75***|***Forbidden Door***||[***Amazon***](https://www.amazon.com/Forbidden-Door-London-2025/dp/B0F8N9CBT4) • [***PPV***](https://www.ppv.com/event/forbidden-door-25)|
+|***75***|***Forbidden Door***||[***Amazon***](https://www.amazon.com/Forbidden-Door-London-2025/dp/B0F8N9CBT4) • [***PPV***](https://www.ppv.com/event/6b3542db-e981-4c40-93f7-f97351f6828a)|
 |76|EXCLUSIVE: Aftermath of Post-Match Attack on Will Ospreay After Forbidden Door Went Off the Air|[AEW](http://youtu.be/4nTnHTNJVJI)||
 |77|Forbidden Door Post Match - Mother Wayne & Kip blame Killswitch?!|[AEW](http://youtu.be/cukVPnVYeNI)||
 |78|Forbidden Door Post Match - "This is NOT going anywhere!" Kyle Fletcher predicts his TNT title reign|[AEW](http://youtu.be/i4ab5k_ywCI)||
