@@ -76,7 +76,7 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |**67**|**ROH on HonorClub 130**||[**HC**](https://www.watchroh.com/player/28753/stream)|
 |***68***|***Global Wars UK***^[6]||[***RevPro***](https://www.revproondemand.com/videos/13yas-night-1-gloval-wars-uk-2025)|
 |69|SCOTTISH TASTE TEST! AEW Stars try out some famous treats from Scotland!|[AEW](http://youtu.be/lUndxEapWS8)||
-|70|What Should We Re-Name Our Finisher?|[BTE](http://youtu.be/Pkm8kPzlhio)||
+|70|What Should We Re-Name Our Finisher? ^[1]|[BTE](http://youtu.be/Pkm8kPzlhio)||
 |**71**|**Collision 107**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-35/august-23-2025) • [**HBO**](https://play.hbomax.com/video/watch/42d6ed96-be80-5468-90b4-6973f1e76609/251ead23-5077-4f6f-85be-34086bce677f)^[7]|
 |72|Countdown to Forbidden Door|[AEW](http://youtu.be/CXUrGWb7ULI)|[TNT](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/countdown-to-forbidden-door-2025) • [HBO](https://play.hbomax.com/video/watch/42d6ed96-be80-5468-90b4-6973f1e76609/251ead23-5077-4f6f-85be-34086bce677f)^[7]|
 |73|ROH World Champion Bandido takes a tour of London before Forbidden Door!|[AEW](http://youtu.be/sHyGnT_oxmI)||
@@ -89,7 +89,7 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |80|Forbidden Door Post Match - This pairing was NO mistake! Brodido are NEW AEW World Tag Champions!|[AEW](http://youtu.be/gcZFNYp54vY)||
 |81|Forbidden Door Exclusive - Ricochet succinctly explains why he and GOA attacked The Hurt Syndicate|[AEW](http://youtu.be/1nIRZKXk_LA)||
 |82|Forbidden Door Post Match - Toni Storm, AEW Women's World Champion, says goodnight to LONDON!|[AEW](http://youtu.be/nlX7YhP2PrQ)||
-|83|Guess Who Called the Bucks|[AEW](http://youtu.be/egPW-rOj1J4)||
+|83|Guess Who Called the Bucks ^[1]|[BTE](http://youtu.be/egPW-rOj1J4)||
 |84|Close Up w/ Renee Paquette: Tay Melo|[AEW](http://youtu.be/zVZCE3CGPxs)||
 |**85**|**Dynamite 308**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-35/august-27-2025) • [**HBO**](https://play.hbomax.com/video/watch/516cb736-720e-4811-881a-594843e0cbf5/bddd7e1b-a7c4-4d78-bd5f-360e48669b58)|
 |86|Dynamite EXCLUSIVE: Thank You Taz! AEW honors Taz at the legendary 2300 Arena!|[AEW](http://youtu.be/GwVinDYSPgg)||
