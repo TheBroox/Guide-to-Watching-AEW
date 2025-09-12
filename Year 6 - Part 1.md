@@ -208,7 +208,7 @@ A list of all All Elite Wrestling "kayfabe" content from the sixth year of the c
 |194|Countdown to WrestleDream|[AEW](http://youtu.be/9tZYrJf2oA8)||
 |195|AEW Close Up w/ Renee Paquette: Private Party|[AEW](http://youtu.be/T_Ibf_Qa0TA)||
 |**196**|**WrestleDream: Zero Hour**|[**AEW**](http://youtu.be/IjHbGAyNy5I)||
-|***197***|***WrestleDream***||[***HBO***](https://play.hbomax.com/video/watch/47399f4d-be0f-4cd4-9acc-fc152775c497/64de1a3d-98da-4522-9899-de0cf4e2de5d) • [***Triller***](https://www.trillertv.com/watch/aew-wrestledream-2024/2pfmo/v2/) • [***PPV***](https://www.ppv.com/event/0e7aafae-9b8e-4d94-925a-36f2d586f38b)|
+|***197***|***WrestleDream***||[***HBO***](https://play.hbomax.com/video/watch/47399f4d-be0f-4cd4-9acc-fc152775c497/64de1a3d-98da-4522-9899-de0cf4e2de5d) • [***Triller***](https://www.trillertv.com/watch/aew-wrestledream-2024/2pfmo/v2/)|
 |~~**198**~~|~~**Dynamite 263**~~|||
 |199|EXCLUSIVE: Post Dynamite words from FTR, Switchblade Jay White, & more!|[AEW](http://youtu.be/P7qZYialVbs)||
 |**200**|**ROH on Honor Club 86**||[**HC**](https://www.watchroh.com/player/28620/stream)|
@@ -267,7 +267,7 @@ A list of all All Elite Wrestling "kayfabe" content from the sixth year of the c
 |~~**252**~~|~~**Rampage 171**~~|||
 |253|Countdown to Full Gear|[AEW](http://youtu.be/y8JRE9uDEdk)||
 |**254**|**Full Gear: Zero Hour**|[**AEW**](http://youtu.be/BoxE8Z8rgR0)||
-|***255***|***Full Gear***||[***HBO***](https://play.hbomax.com/video/watch/30b380f7-e3fd-4eee-8683-e06fe2024c92/e58fdd0a-a017-47b4-b434-70644c8ef641) • [**Triller**](https://www.trillertv.com/watch/aew-full-gear-2024/2pfsd/) • [***PPV***](https://www.ppv.com/event/full-gear24)|
+|***255***|***Full Gear***||[***HBO***](https://play.hbomax.com/video/watch/30b380f7-e3fd-4eee-8683-e06fe2024c92/e58fdd0a-a017-47b4-b434-70644c8ef641) • [**Triller**](https://www.trillertv.com/watch/aew-full-gear-2024/2pfsd/)|
 |256|Close Up w/ Renee Paquette: "Powerhouse" Will Hobbs|[AEW](http://youtu.be/pMzHzj62Y8w)||
 |257|Vlog 437: I lost my wedding ring ^[1]|[SG](http://youtu.be/2gJkMgkNrVM)||
 |257|2024 AEW Continental Classic Selection Special|[AEW](http://youtu.be/qxnj5urm7P4)||
@@ -322,7 +322,7 @@ A list of all All Elite Wrestling "kayfabe" content from the sixth year of the c
 |**304**|**Rampage 176: New Year's Smash**||[**HBO**](https://play.max.com/video/watch/cc9ba07c-d755-4a25-b340-334886ec1e60/101a7ff6-4896-469a-84a9-eaa028d0e729)|
 |305|Countdown to World's End|[AEW](http://youtu.be/4YnvNw9O8HE)||
 |**306**|**World's End: Zero Hour**|[AEW](http://youtu.be/nj9Sk2LEa_4)||
-|***307***|***World's End***||[***HBO***](https://play.hbomax.com/video/watch/b99d9d84-352e-4544-b61d-eb4aaff6c9b4/e8d37584-40cf-4d3d-ba75-368ff3a5dc15) • [**Triller**](https://www.trillertv.com/watch/aew-worlds-end-2024/2pg4e/v2/) • [**PPV**](https://www.ppv.com/event/worlds-end24)|
+|***307***|***World's End***||[***HBO***](https://play.hbomax.com/video/watch/b99d9d84-352e-4544-b61d-eb4aaff6c9b4/e8d37584-40cf-4d3d-ba75-368ff3a5dc15) • [**Triller**](https://www.trillertv.com/watch/aew-worlds-end-2024/2pg4e/v2/)|
 |**308**|**Dynamite 274: Fight for the Fallen (The Mother of all Simulcasts)**||[**HBO**](https://play.max.com/video/watch/516c5eb2-c07f-4c9b-8c9b-9dca937a0d74/5f9b490b-2d67-4b4e-999a-f1f681b1be13)|
 |309|AEW donates $100k to aid in Hurricane Helene relief efforts in Western North Carolina!|[AEW](http://youtu.be/FZ11EIYRCGs)||
 |**310**|**ROH on Honor Club 97**||[**HC**](https://www.watchroh.com/player/28655/stream)|
@@ -390,7 +390,7 @@ A list of all All Elite Wrestling "kayfabe" content from the sixth year of the c
 |372|Countdown to Revolution|[AEW](http://youtu.be/iGR1rnVFtjY)||
 |373|Close-Up w/ Renee Paquette: Adam Cole|[AEW](http://youtu.be/2HVeB7MQl7o)||
 |**374**|**Revolution: Zero Hour**|[**AEW**](http://youtu.be/iBZu3Ieoc1M) • [**Triller**](https://www.trillertv.com/watch/aew-revolution-2025-zero-hour/2pgo2/)|[**Amazon**](https://www.amazon.com/AEW-Revolution-2025-Zero-Hour/dp/B0DTYFYNFB/)|
-|***375***|***Revolution***||[***Triller***](https://www.trillertv.com/watch/aew-revolution-2025/2pghk/) • [***PPV***](https://www.ppv.com/event/617d3aaa-6aa1-4aed-9c7c-c40868b0bcbc) • [***Amazon***](https://www.amazon.com/AEW-Revolution-2025/dp/B0DHYWRQT8/)|
+|***375***|***Revolution***||[***Triller***](https://www.trillertv.com/watch/aew-revolution-2025/2pghk/) • [***Amazon***](https://www.amazon.com/AEW-Revolution-2025/dp/B0DHYWRQT8/)|
 
 [**Guide to Watching AEW - Year 6: Part 2 -->**](https://redd.it/1jghmgl)
 
@@ -411,7 +411,6 @@ A list of all All Elite Wrestling "kayfabe" content from the sixth year of the c
 |HBO|HBO Max|
 |HC|Honor Club Website|
 |NJPW|NJPW World Website|
-|PPV|PPV.com|
 |RevPro|Rev Pro On Demand|
 |ROH|Ring of Honor YouTube Channel|
 |SG|Sammy Guevara YouTube Channel|

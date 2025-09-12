@@ -47,7 +47,7 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |38|Countdown to AEW All In Texas|[AEW](http://youtu.be/HYCSQGuVBrA)||
 |39|Close-Up w/ Renee Paquette:The Young Bucks|[AEW](http://youtu.be/UMh1f2xBDjk)
 |**40**|**All In Texas: Zero Hour**|[**AEW**](http://youtu.be/dRblKqc0J6o)
-|***41***|***All In Texas***||[***Amazon***](https://www.amazon.com/AEW-All-In-Texas/dp/B0F7TR3TWS) • [***Triller***](https://www.trillertv.com/watch/aew-all-in-texas-2025/2phas/) • [***PPV***](https://www.ppv.com/event/ec9fcf2b-06a3-4d7c-9433-783840f0be8d)|
+|***41***|***All In Texas***||[***Amazon***](https://www.amazon.com/AEW-All-In-Texas/dp/B0F7TR3TWS) • [***Triller***](https://www.trillertv.com/watch/aew-all-in-texas-2025/2phas/)|
 |42|Vlog 446: AEW All In Texas 2025|[SG](http://youtu.be/zN6eJxhsJic)
 |**43**|**Dynamite 302**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-29/july-16-2025) • [**HBO**](https://play.hbomax.com/video/watch/60f21c5f-4d6b-4806-9e76-bdd3ad78eedb/59800865-8ce8-4377-8b71-1d75e355967b)|
 |**44**|**ROH on Honor Club 125**||[**HC**](https://www.watchroh.com/player/28722/stream)
@@ -81,7 +81,7 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |72|Countdown to Forbidden Door|[AEW](http://youtu.be/CXUrGWb7ULI)|[TNT](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/countdown-to-forbidden-door-2025) • [HBO](https://play.hbomax.com/video/watch/42d6ed96-be80-5468-90b4-6973f1e76609/251ead23-5077-4f6f-85be-34086bce677f)^[7]|
 |73|ROH World Champion Bandido takes a tour of London before Forbidden Door!|[AEW](http://youtu.be/sHyGnT_oxmI)||
 |**74**|**Forbidden Door: Zero Hour**|[**AEW**](http://youtu.be/_MH4rs_SjvQ) • [**Amazon**](https://www.amazon.com/gp/video/detail/B0FK21BJNL/)||
-|***75***|***Forbidden Door***||[***Amazon***](https://www.amazon.com/Forbidden-Door-London-2025/dp/B0F8N9CBT4) • [***PPV***](https://www.ppv.com/event/6b3542db-e981-4c40-93f7-f97351f6828a)|
+|***75***|***Forbidden Door***||[***Amazon***](https://www.amazon.com/Forbidden-Door-London-2025/dp/B0F8N9CBT4)|
 |76|EXCLUSIVE: Aftermath of Post-Match Attack on Will Ospreay After Forbidden Door Went Off the Air|[AEW](http://youtu.be/4nTnHTNJVJI)||
 |77|Forbidden Door Post Match - Mother Wayne & Kip blame Killswitch?!|[AEW](http://youtu.be/cukVPnVYeNI)||
 |78|Forbidden Door Post Match - "This is NOT going anywhere!" Kyle Fletcher predicts his TNT title reign|[AEW](http://youtu.be/i4ab5k_ywCI)||
