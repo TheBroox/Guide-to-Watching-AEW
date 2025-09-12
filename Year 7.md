@@ -110,7 +110,7 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |101|Hey! (EW): Alex Windsor shares too much information|[AEW](http://youtu.be/839_BjG_lww)||
 |**102**|**Dynamite 310**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-37/september-10-2025) • [**HBO**](https://play.hbomax.com/event/3cc335d4-aeac-5334-9bc8-831c589038db)|
 |103|Close Up w/ Renee Paquette: Dean Malenko|[AEW](http://youtu.be/3QhNPfhetwU)||
-|**104**|**ACTION DEAN~!!! 3||[**HC**](https://www.watchroh.com/player/28762/movies)|
+|**104**|**ACTION DEAN~!!! 3**||[**HC**](https://www.watchroh.com/player/28762/movies)|
 |***--***|***All Out Toronto***||[***HBO***](https://play.hbomax.com/event/ff0757f0-4d69-50f6-ac69-4fc1b43898f1) • [***PPV***](https://www.ppv.com/event/all-out-25)|
 
 # Key
