@@ -111,6 +111,7 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |**102**|**Dynamite 310**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-37/september-10-2025) • [**HBO**](https://play.hbomax.com/event/3cc335d4-aeac-5334-9bc8-831c589038db)|
 |103|Close Up w/ Renee Paquette: Dean Malenko|[AEW](http://youtu.be/3QhNPfhetwU)||
 |**104**|**ACTION DEAN~!!! 3**||[**HC**](https://www.watchroh.com/player/28762/movies)|
+|**105**|**Collision 110**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-38/september-13-2025) • [**HBO**](https://play.hbomax.com/event/ca27c3ff-9f87-55ab-9159-71cd943cfcd1)|
 |**---**|**All Out Toronto: Zero Hour**|[**Amazon**](https://www.amazon.com/gp/video/detail/B0FMKGZ9JY/ref=atv_dp_amz_tc_73A3fI_1_4?jic=8%7CEgNhbGw%3D)||
 |***---***|***All Out Toronto***||[***HBO***](https://play.hbomax.com/event/ff0757f0-4d69-50f6-ac69-4fc1b43898f1) • [***Amazon***](https://www.amazon.com/gp/video/detail/B0FPWMG9M2/ref=atv_dp_amz_c_fIVZ8H_2_1?jic=8%7CEgNhbGw%3D) • [**AEW**](http://youtu.be/aZj86YhkPDE) • [***PPV***](https://www.ppv.com/event/all-out-25)|
 
