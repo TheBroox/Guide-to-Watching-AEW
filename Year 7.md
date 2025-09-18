@@ -106,10 +106,10 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |97|EXCLUSIVE: Kenny Omega stretchered out after BRUTAL assault!|[AEW](http://youtu.be/hynJyZ8IGAA)||
 |**98**|**ROH on Honor Club 132**||[**HC**](https://www.watchroh.com/player/28761/stream)|
 |**99**|**ROH Special Episode**|[**ROH**](http://youtu.be/jUaGwg3Zk0o)||
-|**100**|**Collision 109**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-37/september-6-2025) • [**HBO**](https://play.hbomax.com/event/f0150d59-f16f-5956-b2b0-074e49a82c48)|
+|**100**|**Collision 109**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-37/september-6-2025) • [**HBO**](https://play.hbomax.com/video/watch/5cea56ae-bb97-4d11-869a-9095370814e9/bb82f928-80ee-4b42-8255-968883e24462)|
 |101|Hey! (EW): Alex Windsor shares too much information|[AEW](http://youtu.be/839_BjG_lww)||
 |102|We're Not Bums|[BTE](http://youtu.be/L8kNwUiHzII)||
-|**103**|**Dynamite 310**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-37/september-10-2025) • [**HBO**](https://play.hbomax.com/event/3cc335d4-aeac-5334-9bc8-831c589038db)|
+|**103**|**Dynamite 310**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-37/september-10-2025) • [**HBO**](https://play.hbomax.com/video/watch/4c280dd3-06dd-48fe-b8f7-cca6f62203b4/1442c3c2-575d-4824-a7a4-5b47ba85d84b)|
 |104|Close Up w/ Renee Paquette: Dean Malenko|[AEW](http://youtu.be/3QhNPfhetwU)||
 |**105**|**ACTION DEAN~!!! 3**||[**HC**](https://www.watchroh.com/player/28762/movies)|
 |**106**|**Collision 110**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-38/september-13-2025) • [**HBO**](https://play.hbomax.com/event/ca27c3ff-9f87-55ab-9159-71cd943cfcd1)|
