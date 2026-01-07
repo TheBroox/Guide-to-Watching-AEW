@@ -69,7 +69,7 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |60|Hey! (EW): RUSH: "If You Mess with the Bull..."|[AEW](http://youtu.be/vVC5VbLw0-0)||
 |**61**|**Dynamite 306**||[**HBO**](https://play.hbomax.com/video/watch/4a8f9c27-8d5c-4c9c-a49e-32e489f44cea/d1391a6d-ae3f-4f64-a31a-6a5e2e4e127e)|
 |**62**|**ROH on HonorClub 129**||[**HC**](https://www.watchroh.com/player/28752/stream)|
-|**63**|**ROH Special Episode**|[**ROH**](http://youtu.be/GcEvGQmvFEY)||
+|**63**|**ROH YouTube Special Episode**|[**ROH**](http://youtu.be/GcEvGQmvFEY)||
 |**64**|**Collision 106**||[**HBO**](https://play.hbomax.com/video/watch/5c2c7dfb-cb08-494a-b840-6598c8049e91/a7d9b1c6-e620-4e23-973e-9338232c7a12)|
 |65|Hey! (EW): The Toxic Spider Thekla unleashed!|[AEW](http://youtu.be/JLmq4DFZxfI)||
 |**66**|**Dynamite 307**||[**HBO**](https://play.hbomax.com/video/watch/d71d0c19-317a-4cf2-ab55-790c2b90d153/6bb81405-2101-4a8a-ae35-b923287ab1f8)|
@@ -105,7 +105,7 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |**96**|**Dynamite 309**||[**HBO**](https://play.hbomax.com/video/watch/1ae6a542-6fa9-410d-baab-fea3f3ddb16c/b7c5f162-cc03-4934-9f3d-f6979c82c7b3)|
 |97|EXCLUSIVE: Kenny Omega stretchered out after BRUTAL assault!|[AEW](http://youtu.be/hynJyZ8IGAA)||
 |**98**|**ROH on Honor Club 132**||[**HC**](https://www.watchroh.com/player/28761/stream)|
-|**99**|**ROH Special Episode**|[**ROH**](http://youtu.be/jUaGwg3Zk0o)||
+|**99**|**ROH YouTube Special Episode 2**|[**ROH**](http://youtu.be/jUaGwg3Zk0o)||
 |**100**|**Collision 109**||[**HBO**](https://play.hbomax.com/video/watch/5cea56ae-bb97-4d11-869a-9095370814e9/bb82f928-80ee-4b42-8255-968883e24462)|
 |101|Hey! (EW): Alex Windsor shares too much information|[AEW](http://youtu.be/839_BjG_lww)||
 |102|We're Not Bums|[BTE](http://youtu.be/L8kNwUiHzII)||
@@ -126,19 +126,23 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |117|EXCLUSIVE! Canadian Snack Taste Test w/ Brodido!|[AEW](http://youtu.be/PmqMiJwOYng)||
 |**---**|**Dynamite 312**||[**HBO**](https://play.hbomax.com/video/watch/aaf6d059-93c8-41f5-bdc0-2a6acc704dcc/f673e91b-c18e-4aa7-81bd-2dca985a258c)|
 |---|EXCLUSIVE: Jon Moxley knows how to make Darby Allin go away!|[AEW](http://youtu.be/HjZi2AytuTE)||
+|**--**|**ROH on Honor Club 134**||[**HC**](https://www.watchroh.com/player/28765/stream)|
 |**---**|**Collision 112**||[**HBO**](https://play.hbomax.com/video/watch/51a7f77b-a9c8-4bed-8aa2-25335ded8fa3/ff29a762-8112-45c2-91f1-d0c18d107971)|
 |---|Hey! (EW): Komander on Life, Love & Lucha Libre|[AEW](http://youtu.be/EVQ_AekgV6s)||
 |---|Close Up w/ Renee Paquette: Lee Moriarty|[AEW](http://youtu.be/BO6_hv7od_0)||
 |**---**|**Dynamite 313: 6th Anniversary**||[**HBO**](https://play.hbomax.com/video/watch/9d7370f6-ead0-44e0-8ec6-1b4c4e3e2b70/92ac4966-32e4-46f4-a3d0-66f729295133)|
+|**--**|**ROH on Honor Club 135**||[**HC**](https://www.watchroh.com/player/28766/stream)|
 |**---**|**Collision 113**||[**HBO**](https://play.hbomax.com/video/watch/eaa63f4c-adcb-4060-9ac4-7a880bd10e50/a45cc2a9-b347-4123-9f32-c7508159367d)|
 |---|Hey! (EW): Will Max Caster & Anthony Bowens Scissor Again?|[AEW](http://youtu.be/FdsyVBRAubk)||
 |---|Tony Schiavone previews AEW Title Tuesday & AEW Homecoming!|[AEW](http://youtu.be/PAO7VV3OcJA)||
 |**---**|**Dynamite 314: Title Tuesday**||[**HBO**](https://play.hbomax.com/video/watch/a682b77b-f937-4ba5-8922-3d061c57823e/fc5b73ab-46c0-4036-a839-7e974439c9c7)|
 |---|Close Up w/ Renee Paquette: Kris Statlander -- AEW Women's World Champion|[AEW](http://youtu.be/QXvcTZlXsWQ)||
+|**--**|**ROH on Honor Club 136**||[**HC**](https://www.watchroh.com/player/28767/stream)|
 |**---**|**Collision 114: Homecoming**||[**HBO**](https://play.hbomax.com/video/watch/ee54f57b-3f94-4d6f-9266-0158151bc56b/c19cf4d6-e446-4612-bb24-9d2163debc00)|
 |---|Hey! (EW): Ace Austin does WAY too much|[AEW](http://youtu.be/0yjyfGKna0U)||
 |**---**|**Dynamite 315**||[**HBO**](https://play.hbomax.com/video/watch/0ab3ff6e-068d-4586-8527-d47ed13384a7/2c25b292-5a10-4e7b-8460-ab07214e5142)|
 |**---**|**Collision 115**||[**HBO**](https://play.hbomax.com/video/watch/bccc42c3-9546-4116-969d-26c7b1a95fe8/9b5d5f2f-41c7-4b7e-9e7a-8e71b59999ce) ^[7]|
+|**--**|**ROH on Honor Club 137**||[**HC**](https://www.watchroh.com/player/28768/stream)|
 |---|Countdown to WrestleDream|[AEW](http://youtu.be/KQXcmH9e9B0)||
 |---|WrestleDream: Zero Hour|[AEW](http://youtu.be/P_q9UtqLcec)||
 |**---**|**Saturday Tailgate Brawl: WrestleDream**||[**HBO**](https://play.hbomax.com/video/watch/bccc42c3-9546-4116-969d-26c7b1a95fe8/9b5d5f2f-41c7-4b7e-9e7a-8e71b59999ce) ^[7]|
@@ -146,23 +150,28 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |---|EXCLUSIVE: Hear from The Hurt Syndicate, Bayne & Ford, + Kyle Fletcher after AEW WrestleDream!|[AEW](http://youtu.be/jlGMBHLqw1M)||
 |---|Close Up w/ Renee Paquette: Eddie Kingston|[AEW](http://youtu.be/QB8WrS0zbAc)||
 |**---**|**Dynamite 316**||[**HBO**](https://play.hbomax.com/video/watch/3e5b0b91-5d1a-4414-803a-5cb68357b136/489cc36f-aae6-4181-ac57-a5b32e047df4)|
+|**--**|**ROH on Honor Club 138**||[**HC**](https://www.watchroh.com/player/28770/stream)|
 |**---**|**Collision 116**||[**HBO**](https://play.hbomax.com/video/watch/896d2f65-c109-43cc-8ba9-c66b5919aa7a/60f563fd-ddea-462d-abbe-9ba170c68420)|
 |---|Hey! (EW): The Death-Defying Life of Darby Allin|[AEW](http://youtu.be/5duOezrjuAc)||
 |---|Bandido shares a special moment with his abuela in San Antonio!|[AEW](http://youtu.be/sRWETyoEvxM)||
 |**---**|**Dynamite 317: Fright Night Dynamite**||[**HBO**](https://play.hbomax.com/video/watch/6ae2efd6-535e-4d00-82c4-7ae123f1a32a/4181f2dc-6f69-4e81-8c6f-0f44baa0067e)|
+|**--**|**ROH on Honor Club 139**||[**HC**](https://www.watchroh.com/player/28771/stream)|
 |**---**|**Collision 1117: Fright Night Collision**||[**HBO**](https://play.hbomax.com/video/watch/72bf2a61-be8f-4458-9ab4-07214c2632a1/198d074f-c19d-4621-ac67-60fbfb80c9a3)|
 |---|Hey! (EW): The Frat House Parties Way Too Hard|[AEW](http://youtu.be/wt8QbgiLY7Y)||
 |---|Close Up w/ Renee Paquette: Brodido -- AEW World Tag Team Champions|[AEW](http://youtu.be/rZswnzff_wQ)||
 |**---**|**Dynamite 318**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-45/november-5-2025) • [**HBO**](https://play.hbomax.com/video/watch/a188007c-28d3-4e03-a63c-81461dfe6f70/bb392403-1a62-4d73-9e81-a89919feea9c)|
+|**--**|**ROH on Honor Club 140**||[**HC**](https://www.watchroh.com/player/28772/stream)|
 |**---**|**Collision 118**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-48/november-8-2025) • [**HBO**](https://play.hbomax.com/video/watch/ef5f5ebd-0020-41d2-82d9-c3da51263e9e/054da5af-cd13-4ba7-9ddf-e4258334051a)|
 |---|Hey! (EW): Swirl Takes a Big Lick|[AEW](http://youtu.be/UEwDup1SUag)||
 |---|Celebrate Thanksgiving with AEW!|[AEW](http://youtu.be/OiZS6zf-yS0)||
 |**---**|**Dynamite 319: Blood and Guts**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-46/blood-and-guts-november-12-2025) • [**HBO**](https://play.hbomax.com/video/watch/56309c80-ba7c-4b64-ad8f-f0bd294c4870/aa23a47d-04c9-4ad2-8e40-0af6f239ceb8)|
+|**--**|**ROH on Honor Club 141**||[**HC**](https://www.watchroh.com/player/28775/stream)|
 |**---**|**Collision 119**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-49/november-15-2025) • [**HBO**](https://play.hbomax.com/video/watch/e8c38284-0b47-41c3-8059-7e5445617a20/b4bc676a-905c-4b05-a615-b151caf658b8)|
 |---|Hey! (EW): The Von Erichs are unhinged!|[AEW](http://youtu.be/p9Qd1MmZW2Q)||
 |---|Close Up w/ Renee Paquette: Colt Cabana|[AEW](http://youtu.be/AqkMluF40VU)||
 |**---**|**Dynamite 320**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-47/november-19-2025) • [**HBO**](https://play.hbomax.com/video/watch/656e8704-4c44-4628-850d-f33738c0898c/6e437299-9f8b-4aa9-a87c-8957c9212d8c)|
 |**---**|**Collision 120**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-50/november-19-2025) • [**HBO**](https://play.hbomax.com/video/watch/dbd85a3d-9544-4a00-933b-7c143f094632/c9b2ab9f-aacc-4ed1-bc47-373a985ebe92) ^[7]|
+|**--**|**ROH on Honor Club 142**||[**HC**](https://www.watchroh.com/player/28777/stream)|
 |---|Close Up w/ Renee Paquette: "Big Boom" AJ Befumo|[AEW](http://youtu.be/qqRlNI50Des)||
 |---|Countdown to Full Gear|[AEW](http://youtu.be/Ito1K50sbek)|[TNT](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/countdown-to-full-gear-2025)|
 |---|Full Gear: Zero Hour|[AEW](http://youtu.be/KFCbel30Ezw)||
@@ -173,9 +182,14 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |**---**|**Collision 121: Thanksgiving**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-52/collision-thanksgiving-2025) • [**HBO**](https://play.hbomax.com/video/watch/5dcbab58-5560-4783-8269-68af23eed158/f953202e-72f4-4cc5-9c05-073181662274)|
 |---|AEW Continental Classic competitors assess their first week of competition!|[AEW](http://youtu.be/xCuRMNxcQ_k)||
 |---|Continental Classic 2025: Week 1 Update w/ Ian Riccaboni!|[AEW](http://youtu.be/YqDyfMaY90U)||
+|**--**|**ROH on Honor Club 143: Black Friday**||[**HC**](https://www.watchroh.com/player/28780/stream)|
 |---|Hey! (EW): The Rizzler loses his Rizz?!|[AEW](http://youtu.be/tsU-qYd-bqU)||
+|**---**|**ROH YouTube Special Episode 3**|[**ROH**](http://youtu.be/J3h43ws0PCQ)||
 |**---**|**Dynamite 322**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-49/december-3-2025) • [**HBO**](https://play.hbomax.com/video/watch/57895b03-5d28-4350-a9bd-85e0027a5919/6070d723-d89b-4705-87cf-8d4972f58504)|
 |---|Hear from the AEW Dynamite Continental Classic competitors!|[AEW](http://youtu.be/_1iCzdD34AE)||
+|**--**|**ROH on Honor Club 144**||[**HC**](https://www.watchroh.com/player/28783/stream)|
+|**--**|**Final Battle: Zero Hour**|[**AEW**](http://youtu.be/x_UlMtUSK58)||
+|***---***|***Final Battle***||[***HC***](https://www.watchroh.com/player/28784/stream)|
 |**---**|**Collision 122**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-53/december-6-2025) • [**HBO**](https://play.hbomax.com/video/watch/164180d9-1a7d-4f75-9980-67f905b5b806/7747fb04-e932-485a-a7c3-0969e3c877ae)|
 |---|Post AEW Collision words from Continental Classic competitors!|[AEW](http://youtu.be/FZpk_56HAKE)||
 |---|Continental Classic 2025: Week 2 Update w/ Ian Riccaboni!|[AEW](http://youtu.be/7dfn90X6sM8)||
@@ -183,6 +197,7 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |---|AEW Stars audition to be Santa in front of The Rizzler!|[AEW](http://youtu.be/L9ZgjvYHJvo)||
 |**---**|**Dynamite 323: Winter is Coming**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-50/december-10-2025) • [**HBO**](https://play.hbomax.com/video/watch/37eb0b1a-1801-4b7d-aebb-47381de8e569/dfecd690-431c-498b-82ae-4727cbabc692)|
 |---|Week 3: Post AEW Dynamite words from Continental Classic competitors!|[AEW](http://youtu.be/MUGMq3GuiTU)||
+|**--**|**ROH on Honor Club 145**||[**HC**](https://www.watchroh.com/player/28785/stream)|
 |**---**|**Collision 123: Winter is Coming**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-54/december-13-2025) • [**HBO**](https://play.hbomax.com/video/watch/4744479d-1b9c-47b9-bf98-37718c68a7d1/0bab8782-9a80-4dd2-9c7d-287ba785e773)|
 |---|Week 3: Post AEW Collision words from Continental Classic competitors!|[AEW](http://youtu.be/U1H8DA-067U)||
 |---|AEW Continental Classic 2025: Week 3 Update w/ Ian Riccaboni!|[AEW](http://youtu.be/3c7gtqVXYgM)||
@@ -190,6 +205,7 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |**---**|**Dark: Stocking Stuffer**|[**AEW**](http://youtu.be/zWbwS4eDbOU)||
 |---|EXCLUSIVE: AEW Dynamite Holiday Bash KICKS OFF with Roderick Strong vs Jon Moxley!|[AEW](http://youtu.be/3a_JyMH2phQ)||
 |**---**|**Dynamite 324: Holiday Bash**||Part 1: [**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-51/holiday-bash-december-17-2025) & Part 2: [**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-55/holiday-bash-december-17-2025) • [**HBO**](https://play.hbomax.com/video/watch/991cc924-ba6a-4700-99e3-52e31023de2c/f2399d34-4f4b-4e1d-bd36-058fd4c9038d)|
+|**--**|**ROH on Honor Club 146: Global Wars: United Kingdom**||[**HC**](https://www.watchroh.com/player/28787/stream)|
 |**---**|**Collision 124: Holiday Bash**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-56/holiday-bash-december-20-2025) • [**HBO**](https://play.hbomax.com/video/watch/c54cea2f-6724-497a-bf73-0c4886090fd9/ab68868c-d7bb-49df-b40f-0d65fb3caa30) ^[7]|
 |---|Week 4: Post Dynamite Holiday Bash words from Continental Classic competitors!|[AEW](http://youtu.be/TuyKTVlZl6Y)||
 |---|Week 4: Post Collision Holiday Bash words from Continental Classic competitors!|[AEW](http://youtu.be/EKDzBjGU4Iw)||
@@ -199,10 +215,13 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |**---**|**Collision 125: Christmas Collision**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-57/collision-christmas-2025) • [**HBO**](https://play.hbomax.com/event/d3619d39-7ec0-5d1d-9a18-041f01d82791)|
 |---|Week 5: Post AEW Collision words from Continental Classic competitors!|[AEW](http://youtu.be/gNKEn5hWnIc)||
 |---|Inside the 2025 Continental Classic: Semifinals & Finals Preview with Bryan Danielson, Renee & RJ|[AEW](http://youtu.be/RTCaorqfn88)||
+|**--**|**ROH on Honor Club 147: Boxing Day Brawl**||[**HC**](https://www.watchroh.com/player/28788/stream)|
 |---|Countdown to Worlds End|[AEW](http://youtu.be/KFmmQLQ7Kw8)|[TNT](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/countdown-to-worlds-end-2025)|
 |**--**|**Worlds End: Zero Hour**|[AEW](http://youtu.be/kc6lSk8eojc)||
 |***---***|***Worlds End***||[***HBO***](https://play.hbomax.com/event/fe17b27f-db65-5d46-b02b-7096e12b005c)|
+|**---**|**ROH YouTube Special Episode 4**|[**ROH**](http://youtu.be/WUrkyEEu9Hk)||
 |**---**|**Dynamite 326: New Year's Smash**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-53/dynamite-new-years-smash-december-31-2025) • [**HBO**](https://play.hbomax.com/event/2103e80f-f907-5d9e-8e9d-e1e5dad7e52d)|
+|**--**|**ROH on Honor Club 148**||[**HC**](https://www.watchroh.com/player/28792/stream)|
 |**---**|**Collision 126**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-4/episode-1/january-3-2026) • [**HBO**](https://play.hbomax.com/event/383746ce-5afd-536e-bdc2-780a85ff2c15)|
 
 # Key
