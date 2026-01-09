@@ -169,7 +169,7 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |160|Close Up w/ Renee Paquette: Brodido -- AEW World Tag Team Champions|[AEW](http://youtu.be/rZswnzff_wQ)||
 |161|Should We Join The Don Callis Family? ^[1]|[BTE](http://youtu.be/HmAzDNdIRsw)||
 |162|The Most Expensive Room In My House ^[1]|[SG](http://youtu.be/3y4SZO5q0XU)||
-|**163**|**Dynamite 318**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-45/november-5-2025) • [**HBO**](https://play.hbomax.com/video/watch/a188007c-28d3-4e03-a63c-81461dfe6f70/bb392403-1a62-4d73-9e81-a89919feea9c)|
+|**163**|**Dynamite 318**||[**HBO**](https://play.hbomax.com/video/watch/a188007c-28d3-4e03-a63c-81461dfe6f70/bb392403-1a62-4d73-9e81-a89919feea9c)|
 |**164**|**ROH on Honor Club 140**||[**HC**](https://www.watchroh.com/player/28772/stream)|
 |**165**|**Collision 118**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-48/november-8-2025) • [**HBO**](https://play.hbomax.com/video/watch/ef5f5ebd-0020-41d2-82d9-c3da51263e9e/054da5af-cd13-4ba7-9ddf-e4258334051a)|
 |166|Hey! (EW): Swirl Takes a Big Lick|[AEW](http://youtu.be/UEwDup1SUag)||
