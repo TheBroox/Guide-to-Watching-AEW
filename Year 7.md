@@ -243,7 +243,7 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |**234**|**ROH YouTube Special Episode 4**|[**ROH**](http://youtu.be/WUrkyEEu9Hk)||
 |**235**|**Dynamite 326: New Year's Smash**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-53/dynamite-new-years-smash-december-31-2025) • [**HBO**](https://play.hbomax.com/video/watch/11b25873-084e-4c1f-8af1-1890ce8576a6/785bb45f-873c-4f4b-9511-0ebba044e055)|
 |**236**|**ROH on Honor Club 148**||[**HC**](https://www.watchroh.com/player/28792/stream)|
-|**237**|**Collision 126**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-4/episode-1/january-3-2026) • [**HBO**](https://play.hbomax.com/event/383746ce-5afd-536e-bdc2-780a85ff2c15)|
+|**237**|**Collision 126**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-4/episode-1/january-3-2026) • [**HBO**](https://play.hbomax.com/video/watch/2fe0c45e-97ac-4ef6-a906-1164e37dd327/50480886-22bd-4635-aab8-80f224ab5c8d)|
 |**238**|**Dynamite 327**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-8/episode-1/january-7-2026) • [**HBO**](https://play.hbomax.com/event/83844916-17b2-5cc1-bcf4-de964682e488)|
 |**239**|**ROH on Honor Club 149**||[**HC**](https://www.watchroh.com/player/28793/stream?assetType=episodes&playlist_id=37)|
 |**240**|**Collision 127**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-4/episode-2/january-10-2026) • [**HBO**](https://play.hbomax.com/event/9242a7a7-9d14-518e-a3dc-e39db9f4cdc6)|
