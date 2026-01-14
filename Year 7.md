@@ -171,7 +171,7 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |162|The Most Expensive Room In My House ^[1]|[SG](http://youtu.be/3y4SZO5q0XU)||
 |**163**|**Dynamite 318**||[**HBO**](https://play.hbomax.com/video/watch/a188007c-28d3-4e03-a63c-81461dfe6f70/bb392403-1a62-4d73-9e81-a89919feea9c)|
 |**164**|**ROH on Honor Club 140**||[**HC**](https://www.watchroh.com/player/28772/stream)|
-|**165**|**Collision 118**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-48/november-8-2025) • [**HBO**](https://play.hbomax.com/video/watch/ef5f5ebd-0020-41d2-82d9-c3da51263e9e/054da5af-cd13-4ba7-9ddf-e4258334051a)|
+|**165**|**Collision 118**||[**HBO**](https://play.hbomax.com/video/watch/ef5f5ebd-0020-41d2-82d9-c3da51263e9e/054da5af-cd13-4ba7-9ddf-e4258334051a)|
 |166|Hey! (EW): Swirl Takes a Big Lick|[AEW](http://youtu.be/UEwDup1SUag)||
 |167|Celebrate Thanksgiving with AEW!|[AEW](http://youtu.be/OiZS6zf-yS0)||
 |168|Decision Time? ^[1]|[BTE](http://youtu.be/J1oW7XzsZcw)||
@@ -230,8 +230,8 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |221|Continental Classic 2025: Week 4 Update w/ Ian Riccaboni!|[AEW](http://youtu.be/CMZK5ayvZ-4)||
 |222|Close Up w/ Renee Paquette: "Jungle" Jack Perry|[AEW](http://youtu.be/f0p2ZfCTCn0)||
 |223|The Elite Return! ^[1]|[BTE](http://youtu.be/Y5tCdJar1sE)||
-|**224**|**Dynamite 325: Dynamite on 34th Street**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-52/dynamite-on-34th-street-2025) • [**HBO**](https://play.hbomax.com/event/899d9d4a-8199-532b-b8c4-660d98d1f4b9)|
-|**225**|**Collision 125: Christmas Collision**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-57/collision-christmas-2025) • [**HBO**](https://play.hbomax.com/event/d3619d39-7ec0-5d1d-9a18-041f01d82791)|
+|**224**|**Dynamite 325: Dynamite on 34th Street**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-52/dynamite-on-34th-street-2025) • [**HBO**](https://play.hbomax.com/video/watch/a58229eb-0216-48df-a61f-c462926fd569/9a6599a5-e5a9-41db-9a0f-fc22bed6607e)|
+|**225**|**Collision 125: Christmas Collision**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-57/collision-christmas-2025) • [**HBO**](https://play.hbomax.com/video/watch/a5c43c58-faf3-4a43-b262-c85c0abd49ad/92255404-cf62-4614-8bf9-2d9d94bd01ea)|
 |226|Week 5: Post AEW Collision words from Continental Classic competitors!|[AEW](http://youtu.be/gNKEn5hWnIc)||
 |227|Inside the 2025 Continental Classic: Semifinals & Finals Preview with Bryan Danielson, Renee & RJ|[AEW](http://youtu.be/RTCaorqfn88)||
 |228|Here! Bonus content for Christmas! ^[1]|[BTE](http://youtu.be/sJdkD2wdHNw)||
@@ -241,7 +241,7 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |***232***|***Worlds End***||[***HBO***](https://play.hbomax.com/event/fe17b27f-db65-5d46-b02b-7096e12b005c)|
 |233|Vlog 453: Closing a Chapter ^[1]|[SG](http://youtu.be/VIbzQYJ6NRI)||
 |**234**|**ROH YouTube Special Episode 4**|[**ROH**](http://youtu.be/WUrkyEEu9Hk)||
-|**235**|**Dynamite 326: New Year's Smash**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-53/dynamite-new-years-smash-december-31-2025) • [**HBO**](https://play.hbomax.com/event/2103e80f-f907-5d9e-8e9d-e1e5dad7e52d)|
+|**235**|**Dynamite 326: New Year's Smash**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-53/dynamite-new-years-smash-december-31-2025) • [**HBO**](https://play.hbomax.com/video/watch/11b25873-084e-4c1f-8af1-1890ce8576a6/785bb45f-873c-4f4b-9511-0ebba044e055)|
 |**236**|**ROH on Honor Club 148**||[**HC**](https://www.watchroh.com/player/28792/stream)|
 |**237**|**Collision 126**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-4/episode-1/january-3-2026) • [**HBO**](https://play.hbomax.com/event/383746ce-5afd-536e-bdc2-780a85ff2c15)|
 |**238**|**Dynamite 327**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-8/episode-1/january-7-2026) • [**HBO**](https://play.hbomax.com/event/83844916-17b2-5cc1-bcf4-de964682e488)|
