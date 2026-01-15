@@ -247,8 +247,8 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |**238**|**Dynamite 327**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-8/episode-1/january-7-2026) • [**HBO**](https://play.hbomax.com/event/83844916-17b2-5cc1-bcf4-de964682e488)|
 |**239**|**ROH on Honor Club 149**||[**HC**](https://www.watchroh.com/player/28793/stream?assetType=episodes&playlist_id=37)|
 |**240**|**Collision 127**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-4/episode-2/january-10-2026) • [**HBO**](https://play.hbomax.com/event/9242a7a7-9d14-518e-a3dc-e39db9f4cdc6)|
-|241|Babyface Young Bucks|[BTE](http://youtu.be/Hd7OOraxJgY)||
-|242|A Rough Way to Start the Year (Didn’t Expect This)|[SG](http://youtu.be/e-J-KZAnT1A)||
+|241|Babyface Young Bucks ^[1]|[BTE](http://youtu.be/Hd7OOraxJgY)||
+|242|A Rough Way to Start the Year (Didn’t Expect This) ^[1]|[SG](http://youtu.be/e-J-KZAnT1A)||
 |243|Close Up w/ Fenee Paquette:|[AEW](http://youtu.be/NoTQdrajUOE)||
 
 # Key
