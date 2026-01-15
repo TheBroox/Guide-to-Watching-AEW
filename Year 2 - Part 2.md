@@ -62,7 +62,7 @@ A list of all AEW "kayfabe" content from the second year of the company, picking
 ***477***|***Double or Nothing***||[***Triller***](https://www.trillertv.com/watch/aew-double-or-nothing-2021/2p970/) • [***HBO***](https://play.max.com/video/watch/89fa3143-ddda-4cb4-840f-106b7ab2c845/159dfeb3-a56c-42f6-a95e-b94efd077022)|
 
 
-[**Guide to Watching AEW - Year 3 -->**](https://redd.it/nq3t9a)
+[**Guide to Watching AEW - Year 3: Part 1 -->**](https://redd.it/nq3t9a)
 
 # Key
 |**Bold**|Features first aired wrestling match(es)
