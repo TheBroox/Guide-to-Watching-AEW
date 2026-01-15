@@ -7,6 +7,13 @@ A list of all AEW "kayfabe" content from the second year of the company, picking
  
 |**#**|**Program/Event**|**Free**|**Premium**
 |:-:|:--|:-:|:-:
+***425***|***IMPACT Wrestling: Rebellion***^[6]||[***FITE***](https://www.fite.tv/watch/impact-wrestling-rebellion-2021/2p8ry/)
+426|Being the Elite 253: Hit By A Truck^[1]|[BTE](https://youtu.be/PqlG56qs2OU)
+427|Road to Dynamite|[AEW](https://youtu.be/zYScNUG1ego)
+**428**|**Dark: Elevation 7**|[**AEW**](https://youtu.be/SCXXIVfcPcc)
+429|Vlog 317: Friend Olympics (aka Old Friend)^[1]|[SG](https://youtu.be/J0e7NGerpf4)
+~~**430**~~|~~**The House Always Wins**~~
+**431**|**Dark 86**|[**AEW**](https://youtu.be/PzmB23s5Y-s)
 432|Dynamite Pre Show|[AEW](https://youtu.be/ZMnduG8i4Fg)
 **433**|**Dynamite 82**||[**HBO**](https://play.hbomax.com/video/watch/803a09d7-5d0c-40df-a292-89dcd6e2dda4/29669406-4143-4cda-b8c6-86ad5d0f2450)|
 434|Dynamite Post Show|[AEW](https://youtu.be/bTHzY_Kv1u8)

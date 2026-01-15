@@ -434,13 +434,6 @@ To see a similar list for the first year (and a bit before) of AEW follow the li
 **422**|**Dynamite 81**||[**HBO**](https://play.hbomax.com/video/watch/a3c1dded-f633-4569-a9fb-e28d20598274/be3f7c80-997f-495c-b671-c2268ed8b917)|
 423|Dynamite Post Show|[AEW](https://youtu.be/43z4E1W-EiU)
 424|Outside the Ring: Max Caster|[AEW](https://youtu.be/fsTeDmlArBQ)
-***425***|***IMPACT Wrestling: Rebellion***^[6]||[***FITE***](https://www.fite.tv/watch/impact-wrestling-rebellion-2021/2p8ry/)
-426|Being the Elite 253: Hit By A Truck^[1]|[BTE](https://youtu.be/PqlG56qs2OU)
-427|Road to Dynamite|[AEW](https://youtu.be/zYScNUG1ego)
-**428**|**Dark: Elevation 7**|[**AEW**](https://youtu.be/SCXXIVfcPcc)
-429|Vlog 317: Friend Olympics (aka Old Friend)^[1]|[SG](https://youtu.be/J0e7NGerpf4)
-~~**430**~~|~~**The House Always Wins**~~
-**431**|**Dark 86**|[**AEW**](https://youtu.be/PzmB23s5Y-s)
 
 [**Guide to Watching AEW - Year 2: Part 2 -->**](https://redd.it/1lij5x3)
 

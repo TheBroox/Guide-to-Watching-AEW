@@ -3,7 +3,7 @@ A list of all All Elite Wrestling "kayfabe" content from the fourth year of the 
 
 To see a similar list for the third year of AEW follow the link below:
 
-[**<-- Guide to Watching AEW - Year 3**](https://redd.it/nq3t9a)
+[**<-- Guide to Watching AEW - Year 3: Part 2**](https://redd.it/1qd75fr)
 
 **Reddit App Users:** The Reddit app cuts off two of the columns in the table below. Scroll right find the links.
  
@@ -16,9 +16,9 @@ To see a similar list for the third year of AEW follow the link below:
 5|Road to Los Angeles|[AEW](https://youtu.be/YsIwKOafWG8)
 6|Control Center: Los Angeles|[AEW](https://youtu.be/b2DUjf0fVUI)
 7|Dynamite Pre Show|[AEW](https://youtu.be/lCrrjsIk4HQ)
-~~**8**~~|~~**Dynamite 139**~~
+**8**|**Dynamite 139**||[**HBO**](https://play.hbomax.com/video/watch/b14e8775-8ad5-4795-8710-03295bd48aee/9a775b1b-eb1d-43f6-ae45-2ce62e291940)|
 9|Rampage Pre Show|[AEW](https://youtu.be/qgm9Krm24V0)
-~~**10**~~|~~**Rampage 43**~~
+**10**|**Rampage 43**||[**HBO**](https://play.hbomax.com/video/watch/82256f73-0389-4540-95ee-b73e78d39852/9311e5a2-b75f-4539-878f-46b251519950)|
 11|Exclusive: Young Bucks and Lucha Bros Entrances|[AEW](https://youtu.be/BxY_yTjDAXo)
 12|Hey! (EW): Tony Schiavone Went to a Movie With Eddie Kingston!?|[AEW](https://youtu.be/qqKNlJzuoPU)
 13|BTE 310: Welcome Home Young Bucks^[1]|[BTE](https://youtu.be/y4xuuaKtV2E)
@@ -27,9 +27,9 @@ To see a similar list for the third year of AEW follow the link below:
 **16**|**Dark 147**|[**AEW**](https://youtu.be/AXSF2NsUPqc)
 17|Road to Kansas City|[AEW](https://youtu.be/aGR4i7bZXD8)
 18|Control Center|[AEW](https://youtu.be/W4CSujugCvs)
-~~**19**~~|~~**Dynamite 140**~~
+**19**|**Dynamite 140**||[**HBO**](https://play.hbomax.com/video/watch/7bcda218-a268-4cab-b8de-711817a421ec/0dae897f-2061-429d-84b4-c02c5e201b9d)|
 20|Exclusive: Jake Hager and Eddie Kingston Make Their Entrances|[AEW](https://youtu.be/w0L5IDwnvRc)
-~~**21**~~|~~**Rampage 44**~~
+**21**|**Rampage 44**||[**HBO**](https://play.hbomax.com/video/watch/9f5866a4-ad7d-4a5a-a83c-2b5930af190b/bfed1df6-ffa5-4fec-a4cc-429323dc48dd)|
 ***22***|***New Japan Pro Wrestling: Dominion***||[**NJPW**](https://watch.njpwworld.com/details/36255)
 23|Hey! (EW): FTR Work on Their Likeability with RJ City|[AEW](https://youtu.be/h4PF5U0TW74)
 24|#AEWDON FanFest BTE Championship Title Defense Uncut + Live Panel!^[1]|[BTE](https://youtu.be/R_pNmfdDpKc)
@@ -39,8 +39,8 @@ To see a similar list for the third year of AEW follow the link below:
 28|Road to St. Louis|[AEW](https://youtu.be/CQkPuIv2JF8)
 29|Control Center|[AEW](https://youtu.be/ngjgDP8JvAM)
 30|Dynamite Pre Show|[AEW](https://youtu.be/TtpZa0Wj4S0)
-~~**31**~~|~~**Dynamite 141: Road Rager**~~
-~~**32**~~|~~**Rampage 45: Road Rager**~~
+**31**|**Dynamite 141: Road Rager**||[**HBO**](https://play.hbomax.com/video/watch/efbaf7cd-4096-428f-a2a0-ab600647c9a5/fd980b6c-ec27-42a6-b473-bc6c25c51287)|
+**32**|**Rampage 45: Road Rager**||[**HBO**](https://play.hbomax.com/video/watch/e8537ffd-826b-4636-a108-2b7dc7d2ad3d/6f15e328-3d05-4768-95e3-163af0349e22)|
 33|Hey! (EW): Did RJ City Help Ruby Soho Find Her Destination?|[AEW](https://youtu.be/KqbEja6TMbY)
 34|BTE 311: 2x^[1]|[BTE](https://youtu.be/9vBN3u8JYSA)
 **35**|**Dark: Elevation 68**|[**AEW**](https://youtu.be/1C5LjsiVWTs)
@@ -49,9 +49,9 @@ To see a similar list for the third year of AEW follow the link below:
 38|Road to Milwaukee|[AEW](https://youtu.be/mT9CjrPhlos)
 39|Control Center: Milwaukee|[AEW](https://youtu.be/Yyn1OlbKYGE)
 40|Dynamite Pre Show|[AEW](https://youtu.be/ERuvBEBzw6I)
-~~**41**~~|~~**Dynamite 142**~~
+**41**|**Dynamite 142**||[**HBO**](https://play.hbomax.com/video/watch/a3038705-4d46-4fee-ab07-1cab2572fed0/b487c32e-e415-4b1f-9c93-e1ac704cab36)|
 42|Exclusive: Andrade El Idolo and Rey Fenix Entrances|[AEW](https://youtu.be/5O6Pv9X3NB4)
-~~**43**~~|~~**Rampage 46**~~
+**43**|**Rampage 46**||[**HBO**](https://play.hbomax.com/video/watch/534fc599-c8c0-4974-b8cd-c57640a1fc03/dcc96047-71d3-4ec4-86a4-cf7c08ec9fb2)|
 44|Countdown to Forbidden Door|[AEW](https://youtu.be/-uaPtIOmFZ0)
 45|Control Center: Forbidden Door|[AEW](https://youtu.be/BrHYPNO235U)
 46|Forbidden Door Pre Show|[AEW](https://youtu.be/4PrCg4jnN4A)
@@ -64,10 +64,10 @@ To see a similar list for the third year of AEW follow the link below:
 52|Road to Detroit: Blood & Guts|[AEW](https://youtu.be/jR1L89zdNaA)
 53|Control Center: Blood & Guts|[AEW](https://youtu.be/3lhy7wn_TZs)
 54|Blood & Guts Pre-Show|[AEW](https://youtu.be/cCAG3FwEWf0)
-~~**55**~~|~~**Dynamite 143: Blood & Guts**~~
+**55**|**Dynamite 143: Blood & Guts**||[**HBO**](https://play.hbomax.com/video/watch/34ba96f2-b07d-4c0b-90f0-c92e5381f337/2c1bfa88-a84a-4c94-974b-aee69c3c559c)|
 56|Control Center|[AEW](https://youtu.be/RHbI61qHIkw)
 57|Exclusive: First Two Entrants in the AEW Royal Rampage Make Their Entrances|[AEW](https://youtu.be/iW_kLFWQ-Xc)
-~~**58**~~|~~**Rampage 47**~~
+**58**|**Rampage 47**||[**HBO**](https://play.hbomax.com/video/watch/96dadd65-1d9b-462b-a2a8-a5a758f20273/fe6ddeb6-7833-47fb-8633-0e6c4e6bf15e)|
 59|Hey! (EW): Nobody Puts Adam Cole Bay Bay In A Corner|[AEW](https://youtu.be/tIIi8tspbd8)
 60|BTE 312: Just Hit Send^[1]|[BTE](https://youtu.be/zRtRIoNTx9c)
 **61**|**Dark: Elevation 70**|[**AEW**](https://youtu.be/6YzakcUwcvc)
