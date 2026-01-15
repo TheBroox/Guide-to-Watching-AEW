@@ -249,7 +249,7 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |**240**|**Collision 127**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-4/episode-2/january-10-2026) • [**HBO**](https://play.hbomax.com/event/9242a7a7-9d14-518e-a3dc-e39db9f4cdc6)|
 |241|Babyface Young Bucks ^[1]|[BTE](http://youtu.be/Hd7OOraxJgY)||
 |242|A Rough Way to Start the Year (Didn’t Expect This) ^[1]|[SG](http://youtu.be/e-J-KZAnT1A)||
-|243|Close Up w/ Fenee Paquette:|[AEW](http://youtu.be/NoTQdrajUOE)||
+|243|Close Up w/ Renee Paquette:|[AEW](http://youtu.be/NoTQdrajUOE)||
 
 # Key
 

@@ -8,6 +8,22 @@ A list of all All Elite Wrestling "kayfabe" content from the fourth year of the 
 
 |**#**|**Program/Event**|**Free**|**Premium**|
 |:-:|:--|:-:|:-:|
+508|Road to Sunrise|[AEW](https://youtu.be/D16r0v-0zHo)
+509|Control Center: Sunrise|[AEW](https://youtu.be/ke4LUHvQ0wA)
+~~**510**~~|~~**Dynamite 186**~~
+511|All Access 4: Wayward Sons||[TBS](https://www.tbs.com/shows/aew-all-access/season-1/episode-4/wayward-sons) • [HBO](https://play.max.com/video/watch/ededed08-b925-44b3-851e-628ecd57ee26/6e85bc21-7c8a-4ad8-811e-eea9ce82b8e8)|
+**512**|**ROH on Honor Club 9**||[**HC**](https://www.watchroh.com/player/28294/stream)
+~~**513**~~|~~**Rampage 90**~~
+514|BTE 345: Cheese Puff^[1]|[BTE](https://youtu.be/xGaAlRF162A)
+515|Vlog 408: Are MJF & Sammy really friends?^[1]|[SG](https://youtu.be/NsJgWeDhiu4)
+516|Road to Baltimore|[AEW](https://youtu.be/_YOaC-3I-C0)
+517|Control Center: Baltimore|[AEW](https://youtu.be/4fT84GiBkvU)
+~~**518**~~|~~**Dynamite 187**~~
+519|All Access 5: Winter is Coming||[TBS](https://www.tbs.com/shows/aew-all-access/season-1/episode-5/winter-is-coming) • [HBO](https://play.max.com/video/watch/d5766472-3d5b-4ba9-a11f-2335ca6279f8/9b944d61-a734-48b8-bd5e-e3d53527e36d)|
+**520**|**ROH on Honor Club 10**||[**HC**](https://www.watchroh.com/player/28295/stream)
+~~**521**~~|~~**Rampage 91**~~
+**522**|**Exclusive: The Firm Deletion at the Hardy Compound - Director's Cut**|[**AEW**](https://youtu.be/2Hefsv5H2Ww)
+523|Hey! (EW): Hikaru Shida Sings!|[AEW](https://youtu.be/rOojTO_9NhA)
 |524|BTE 346: Secret Secret I’ve Got A Secret ^(\[1\])|[BTE](https://youtu.be/gjSrP7tG4l8)||
 |525|Vlog 409: MJF is NOT my friend ^(\[1\])|[SG](https://youtu.be/IfyFcpODyhA)||
 |526|Road to Detroit|[AEW](https://youtu.be/TEBdIvcXI_U)||
@@ -40,7 +56,7 @@ A list of all All Elite Wrestling "kayfabe" content from the fourth year of the 
 |**553**|**Double of Nothing: The Buy In**|[**AEW**](https://youtu.be/nOyoCauXnqM)||
 |***554***|***Double or Nothing***||[***Triller***](https://www.trillertv.com/watch/aew-double-or-nothing-2023/2pcsq/) • [**HBO**](https://play.max.com/video/watch/2f0e53ad-654b-4762-9894-135ccf09f49d/03b8c50c-ff57-45db-bb1e-97f72e422a87)|
 
-[**Guide to Watching AEW - Year 5 -->**](https://redd.it/145dck7)
+[**Guide to Watching AEW - Year 5: Part 1 -->**](https://redd.it/145dck7)
 
 # Key
 
