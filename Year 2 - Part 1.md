@@ -278,7 +278,7 @@ To see a similar list for the first year (and a bit before) of AEW follow the li
 266|Kenny Omega SENDS A MESSAGE Ahead of Hard To Kill!^[6]|[IW](https://youtu.be/KdmurvK7BhQ)
 267|Dynamite: New Year's Smash Night 1 Pre Show|[AEW](https://youtu.be/LHAcx7v6os0)
 268|Chris Jericho makes his entrance LIVE prior to the start of #AEWDynamite|[AEW](https://youtu.be/j8P8o6eFhwQ)
-~~**269**~~|~~**Dynamite 66: New Year's Smash Night 1**~~
+**269**|**Dynamite 66: New Year's Smash Night 1**||[**HBO**](https://play.hbomax.com/video/watch/1c7402d5-47ec-4bf8-95fa-c5ffde0e49a8/bc34d1a0-85d4-40c5-91d4-b6529eb7d87a)|
 270|Dynamite: New Year's Smash Night 1 Post Show|[AEW](https://youtu.be/DZbVyR7cvHk)
 271|Being the Elite 238: The Band Is Back Together^[1]|[BTE](https://youtu.be/afW--AMqRAE)
 272|Road to New Year's Smash Night 2|[AEW](https://youtu.be/8c9JpfgY2MA)
@@ -287,7 +287,7 @@ To see a similar list for the first year (and a bit before) of AEW follow the li
 275|Kenny Omega Sparks INSANE BRAWL Ahead of Hard To Kill!^[6]|[IW](https://youtu.be/42aaPBHpzYQ)
 276|Untitled PAID AD on IMPACT Wrestling^[6]|[IMPACT Wrestling Twitter](https://twitter.com/IMPACTWRESTLING/status/1349164236786823169)
 277|Dynamite: New Year's Smash Night 2 Pre Show|[AEW](https://youtu.be/LU0oBYUcZ9o)
-**278**|**Dynamite 67: New Year's Smash Night 2**|[**AEW**](https://youtu.be/s9r39HKn6zw&list=PLILTWWX_AIJSLs9bBbIKypUq_nXqw4U59)^[4,5]
+**278**|**Dynamite 67: New Year's Smash Night 2**|[**AEW**](https://youtu.be/s9r39HKn6zw&list=PLILTWWX_AIJSLs9bBbIKypUq_nXqw4U59)^[4,5]|[**HBO**](https://play.hbomax.com/video/watch/e28aa4ce-5ed8-4688-938f-8fc8f503f98a/d1144937-3fd0-49a4-b439-e34398ed5d33)|
 279|Dynamite: New Year's Smash Night 2 Post Show|[AEW](https://youtu.be/g2-wCUPnATk)
 ***280***|***IMPACT Wrestling: Hard to Kill***^[6]||[***Fite***](https://www.fite.tv/watch/impact-wrestling-hard-to-kill-2021/2p8k6/)
 281|Being the Elite 239: Duped^[1]|[BTE](https://youtu.be/8HX5JASxk0Y)
@@ -298,7 +298,7 @@ To see a similar list for the first year (and a bit before) of AEW follow the li
 286|Good Brothers Have NEW #1 Contenders...From AEW!^[6]|[IW](https://youtu.be/Hcf5KipibqM)
 287|I MAKE KINGS^[1]|[MHB](https://youtu.be/jfTWmdkI_q4)
 288|Dynamite Pre Show: It's Negative One's Birthday|[AEW](https://youtu.be/Xbs1zbapYmQ)
-~~**289**~~|~~**Dynamite 68**~~
+**289**|**Dynamite 68**||[**HBO**](https://play.hbomax.com/video/watch/c2702e8f-a5c7-4001-8459-976b93007c98/670daa6e-3122-4cc4-b586-80cd1687d741)|
 290|Dynamite Post Show|[AEW](https://youtu.be/7pfQztgjP6E)
 291|Being the Elite 240: Fender Bender^[1]|[BTE](https://youtu.be/FbstWCNwWSg)
 292|Road to Dynamite|[AEW](https://youtu.be/xYj9WrCcn5s)
@@ -308,13 +308,13 @@ To see a similar list for the first year (and a bit before) of AEW follow the li
 296|Matt Hardy FIRES UP Private Party!^[6]|[IW](https://youtu.be/hwYVQrXwrHQ)
 297|Bleacher Report Presents: AEW Dynamite Awards|[AEW](https://youtu.be/EMga4iFDHa4)
 298|Dynamite Pre Show|[AEW](https://youtu.be/hXkh68CPXxA)
-**299**|**Dynamite 69**|[**AEW**](https://youtu.be/zOWTRnjGUwc&list=PLILTWWX_AIJSiKKkAaNSLjLDlTndWU1yx)^[4,5]
+**299**|**Dynamite 69**|[**AEW**](https://youtu.be/zOWTRnjGUwc&list=PLILTWWX_AIJSiKKkAaNSLjLDlTndWU1yx)^[4,5]|[**HBO**](https://play.hbomax.com/video/watch/e196e0d6-00b2-4306-82c1-904d7d598df2/487aeb86-e7e4-4d6d-83c3-ee8da5a388c4)|
 300|Being the Elite 241: The Betrayal Is Real^[1]|[BTE](https://youtu.be/O3d5D4ju-v0)
 301|Vlog 305: 4 Dudes, 1 Bathroom^[1]|[SG](https://youtu.be/oKIG9g5WKUs)
 302|AEW Owner Tony Khan's Newest PAID AD on IMPACT Wrestling!^[6]|[IW](https://youtu.be/ghLXz20W990)
 **303**|**Dark 73**|[**AEW**](https://youtu.be/hNX0G_IT1T0)
 304|Dynamite: Beach Break Pre Show|[AEW](https://youtu.be/S-pdfjbvX4g)
-~~**305**~~|~~**Dynamite 70: Beach Break**~~
+**305**|**Dynamite 70: Beach Break**||[**HBO**](https://play.hbomax.com/video/watch/29b564af-ae7c-4631-8606-74514c137c8d/5da3c634-8c7f-4e14-b519-c736f9fc19e7)|
 306|Dynamite: Beach Break Post Show|[AEW](https://youtu.be/V9PTjmrpSgE)
 307|Being the Elite 242: Set for Life^[1]|[BTE](https://youtu.be/qsKPv6_Uc3Y)
 308|Road to Dynamite: Why is Darby Allin going to lose the TNT Championship to Joey Janella?|[AEW](https://youtu.be/ii0sxLZhTcc)
@@ -324,7 +324,7 @@ To see a similar list for the first year (and a bit before) of AEW follow the li
 312|AEW's Private Party Inject CONTROVERSY in Championship Main Event!^[6]|[IW](https://youtu.be/gEYe55n2uOI)
 313|Women's Eliminator Tournament: Bracketology|[AEW](https://youtu.be/I5Zoc4o3KXo)
 314|Dynamite Pre Show|[AEW](https://youtu.be/l9F3q25wKXE)
-**315**|**Dynamite 71**|[**AEW**](https://youtu.be/ej3nhExh6FU&list=PLhgMGSqrutF8huxoKYU6k05f_fBKIpJJH)^[4,5]
+**315**|**Dynamite 71**|[**AEW**](https://youtu.be/ej3nhExh6FU&list=PLhgMGSqrutF8huxoKYU6k05f_fBKIpJJH)^[4,5]|[**HBO**](https://play.hbomax.com/video/watch/fe171d56-9115-41fb-9b46-7532525ec29c/5d9aed54-d334-404f-a9a7-8aa431bf2e18)|
 316|Social Exclusive: After the Falls Count Anywhere match Omega, Callis & Good Bros clear the air on Bullet Club & More|[AEW](https://youtu.be/thut9Zr9tTw)
 317|Dynamite Post Show|[AEW](https://youtu.be/hnH6YJbQ0Is)
 318|Coach's Corner: Arn breaks down Lee Johnson's first win & another Anderson is on the way?|[AEW](https://youtu.be/k6_nC-ZM6qs)
@@ -335,7 +335,7 @@ To see a similar list for the first year (and a bit before) of AEW follow the li
 **323**|**Dark 75**|[**AEW**](https://youtu.be/qu-ooZ4ilMw)
 324|AEW Owner Tony Khan has a SPECIAL PRESENT for Kenny Omega!|[IW](https://youtu.be/ZlmRX5ZLBqM)^[6]
 325|Dynamite Pre Show|[AEW](https://youtu.be/3rJmEqqvKOk)
-~~**326**~~|~~**Dynamite 72**~~
+**326**|**Dynamite 72**||[**HBO**](https://play.hbomax.com/video/watch/abeab595-0a8d-4ed6-8c85-dc2cbc075918/aff933cf-dfec-4d8b-aa90-5c090e313ec7)|
 327|Dynamite Post Show|[AEW](https://youtu.be/kJAgi7OH5Lc)
 328|Being the Elite 244: Nepotism^[1]|[BTE](https://youtu.be/DHfI24c4PhI)
 329|Hardy vs Page at Revolution^[1]|[MHB](https://youtu.be/EgcSCTwrr04)
@@ -346,7 +346,7 @@ To see a similar list for the first year (and a bit before) of AEW follow the li
 334|Tony Khan Brings AEW Roster for PAID AD on IMPACT!^[1]|[IW](https://youtu.be/BBo7joA8scU)
 335|Adam Page is a terrible human being^[1]|[MHB](https://youtu.be/qSeqlEFKmaU)
 336|Dynamite Pre Show|[AEW](https://youtu.be/3PSHhqi4x5g)
-**337**|**Dynamite 73**|[**AEW**](https://youtu.be/KP6rCUkIzI8&list=PLILTWWX_AIJQoceYtGnwEj16C22p6A3EC)^[4,5]
+**337**|**Dynamite 73**|[**AEW**](https://youtu.be/KP6rCUkIzI8&list=PLILTWWX_AIJQoceYtGnwEj16C22p6A3EC)^[4,5]|[**HBO**](https://play.hbomax.com/video/watch/b7d09881-78c1-4617-8d60-8e6d5d18be7b/4483d66c-76af-41b3-abde-c814faf03b90)|
 338|Dynamite Post Show|[AEW](https://youtu.be/XJUnoomKm9M)
 **339**|**Women's World Championship Eliminator Tournament: Show 3**|[**AEW**](https://youtu.be/OKwOgSBHf3c)
 340|Being the Elite 245: Back When You Were A Jobber^[1]|[BTE](https://youtu.be/KYxvgTQ7N34)
@@ -356,7 +356,7 @@ To see a similar list for the first year (and a bit before) of AEW follow the li
 **344**|**Dark 77**|[**AEW**](https://youtu.be/l8oyUC3O87g)
 345|AEW Owner Tony Khan Promises HUGE Week with Dynamite & Revolution!^[6]|[IW](https://youtu.be/i6h1cNdBDfc)
 346|Dynamite: The Crossroads Pre Show|[AEW](https://youtu.be/Yl45AgpCTko)
-~~**347**~~|~~**Dynamite 74: The Crossroads**~~
+**347**|**Dynamite 74: The Crossroads**||[**HBO**](https://play.hbomax.com/video/watch/cc596bc7-d15c-47b7-b598-a5e2b4a8bb6e/101d3ac3-b453-4175-b1fb-4dbe9db3a806)|
 348|Exclusive FTR, Tully Blanchard and JJ Dillion post match interview|[AEW](https://youtu.be/nnfBD8Gk8hU)
 349|Countdown to Revolution|[AEW](https://youtu.be/RK_h35LxXow&list=PLhgMGSqrutF9soNIXxj6DhmraYY6Rd3LD)^[4,5]
 **350**|**Dark 78**|[**AEW**](https://youtu.be/yQz1SifYnYg)
@@ -368,7 +368,7 @@ To see a similar list for the first year (and a bit before) of AEW follow the li
 256|AEW Owner Tony Khan Previews Tomorrow Night's DYNAMITE!^[6]|[IW](https://youtu.be/q_Dn_Ui-exg)
 357|World Title UNIFICATION at Sacrifice! Winner Faces KENNY OMEGA!^[6]|[IW](https://youtu.be/azp8a80nm_I)
 358|Dynamite Pre Show|[AEW](https://youtu.be/7fgiuiCRvVY)
-~~**359**~~|~~**Dynamite 75**~~
+**359**|**Dynamite 75**||[**HBO**](https://play.hbomax.com/video/watch/4778faa7-3179-494a-8c2a-f667f3c9cefc/2610d50d-58c5-4ea0-8e17-c95862d66a35)|
 360|Dynamite Post Show|[AEW](https://youtu.be/g2SD8e8xV_Q)
 361|Being the Elite 247: Lawn Mower^[1]|[BTE](https://youtu.be/jydxHTJUMVE)
 362|Road to St. Patrick's Day Slam|[AEW](https://youtu.be/rObyLvuPauM)
@@ -377,7 +377,7 @@ To see a similar list for the first year (and a bit before) of AEW follow the li
 **365**|**Dark 80**|[**AEW**](https://youtu.be/0yDFOKOGKXw)
 366|AEW Owner Tony Khan Breaks Down ST. PATRICK'S DAY SLAM!^[6]|[IW](https://youtu.be/_x3bjElXa_I)
 367|Dynamite Pre Show|[AEW](https://youtu.be/QktTngEIdck)
-368|**Dynamite 76: St. Patrick's Day Slam**|[**AEW**](https://youtu.be/j-SLE70ViPM&list=PLILTWWX_AIJQVAInggFfrGStJrZHvYrKP)^[4,5]
+**368**|**Dynamite 76: St. Patrick's Day Slam**|[**AEW**](https://youtu.be/j-SLE70ViPM&list=PLILTWWX_AIJQVAInggFfrGStJrZHvYrKP)^[4,5]|[**HBO**](https://play.hbomax.com/video/watch/b3ea7e3b-c0e9-4df7-af4a-977fcf0016bb/d868d4d4-4041-4fe8-9cce-e34f7fce8dd0)|
 369|Dynamite Post Show|[AEW](https://youtu.be/EECtg0qcD8g)
 370|Being the Elite 248: Better off Without Me^[1]|[BTE](https://youtu.be/l-oZyO3nP3w)
 **310**|**Dark: Elevation 2**|[**AEW**](https://youtu.be/E0juqB3F5AM)
@@ -387,7 +387,7 @@ To see a similar list for the first year (and a bit before) of AEW follow the li
 375|KENNY OMEGA is Inside the IMPACT Zone!^[6]|[IW](https://youtu.be/Vr4gSBWagn0)
 376|Rich Swann vs Kenny Omega: TITLE vs TITLE!^[6]|[IW](https://youtu.be/UiWtH7A1u_g)
 377|Dynamite Pre Show|[AEW](https://youtu.be/8mPE-T41f78)
-~~**378**~~|~~**Dynamite 77**~~
+**378**|**Dynamite 77**||[**HBO**](https://play.hbomax.com/video/watch/641111c1-4146-4fba-847e-33b8f2d5975e/450b3c33-04e8-4018-8584-b7fec51559f4)|
 379|Dynamite Post Show|[AEW](https://youtu.be/kPimIGbiZMo)
 380|Rich Swann RESPONDS to Kenny Omega!^[6]|[IW](https://youtu.be/00wf9rV76gQ)
 381|Being the Elite 249: Contentment^[1]|[BTE](https://youtu.be/HT1eRvjqAow)
@@ -397,7 +397,7 @@ To see a similar list for the first year (and a bit before) of AEW follow the li
 385|AEW Owner Tony Khan Promises All-Time Great Dynamite Tomorrow!^[6]|[IW](https://youtu.be/xM46uVo5NgU)
 386|Kenny Omega JUMPS Rich Swann!^[6]|[IW](https://youtu.be/Lh0h-a-uYy0)
 387|Dynamite Pre Show|[AEW](https://youtu.be/5VT-U-MMn1g)
-**388**|**Dynamite 78**|[**AEW**](https://youtu.be/g1mOWvVRM64&list=PLhgMGSqrutF-gnVeavrnY9NXjm2CPar7v)^[4,5]
+**388**|**Dynamite 78**|[**AEW**](https://youtu.be/g1mOWvVRM64&list=PLhgMGSqrutF-gnVeavrnY9NXjm2CPar7v)^[4,5]|[**HBO**](https://play.hbomax.com/video/watch/8ad2b056-8d9f-4e86-897a-3636f4a08caf/52d2d35f-14c6-47ea-a6e5-558af0bf3247)|
 389|Dynamite Post Show|[AEW](https://youtu.be/GB6auDw7Xm8)
 390|The Multiverse of Matt Hardy 6: CHAMELEON^[1]|[MHB](https://youtu.be/d-NplYiLg7k)
 391|The House Always Wins Special Announcement|[AEW](https://youtu.be/eEOFpbaN4Q8)
@@ -410,7 +410,7 @@ To see a similar list for the first year (and a bit before) of AEW follow the li
 398|A NEW MATT FACT^[1]|[MHB](https://youtu.be/40jhQtxrcwc)
 **399**|**Dark 83**|[**AEW**](https://youtu.be/wr8R03i2wy0)
 400|Dynamite Pre Show|[AEW](https://youtu.be/p3V_QxvebEw)
-~~**401**~~|~~**Dynamite 79**~~
+**401**|**Dynamite 79**||[**HBO**](https://play.hbomax.com/video/watch/26bf806c-6ed5-46ac-b392-3e47e2e8f3c8/11fbdd12-e733-4bcc-9c99-59631839a5a9)|
 402|Dynamite Post Show|[AEW](https://youtu.be/x64Nu7fakfY)
 **403**|**Kenny Omega SHOCKED by Rich Swann in Historic Main Event!**^[4,6]|[**IW**](https://youtu.be/nLU3rn4ExYA)
 404|Sting & Dustin Rhodes receive a Pro Wrestling Illustrated blast from the past|[AEW](https://youtu.be/ywSyg4wv44M)
@@ -421,7 +421,7 @@ To see a similar list for the first year (and a bit before) of AEW follow the li
 409|Vlog 315: TYSON^[1]|[SG](https://youtu.be/mW0_AN46SRs)
 **410**|**Dark 84**|[**AEW**](https://youtu.be/ts1A9j7qYg0)
 411|Dynamite Pre Show|[AEW](https://youtu.be/48pdUzG81BU)
-**412**|**Dynamite 80**|[**AEW**](https://www.youtube.com/playlist?list=PLhgMGSqrutF_B9IHurswTiwUOQvQsLpqP)^[4,5]
+**412**|**Dynamite 80**|[**AEW**](https://www.youtube.com/playlist?list=PLhgMGSqrutF_B9IHurswTiwUOQvQsLpqP)^[4,5]|[**HBO**](https://play.hbomax.com/video/watch/5173f28c-f106-47a9-9a7c-babf6d162a3b/22c72e42-4b02-43ea-953b-875998270530)|
 413|Dynamite Post Show|[AEW](https://youtu.be/rskKAWVqRl8)
 414|Kenny Omega and Rich Swann's Explosive FULL LENGTH Rebellion Press Conference^[6]|[IW](https://youtu.be/6dC5qFrdF7U)
 415|Outside the Ring: Stu Grayson & Evil Uno|[AEW](https://youtu.be/ZY7DWU6dIxI)
@@ -431,7 +431,7 @@ To see a similar list for the first year (and a bit before) of AEW follow the li
 419|Vlog 316: Get your hand off another man's wife!!^[1]|[SG](https://youtu.be/M6t1Xm6ig7Q)
 **420**|**Dark 85**|[**AEW**](https://youtu.be/cu1TLzpkYwQ)
 421|Dynamite Pre Show|[AEW](https://youtu.be/h81BLJzsvoU)
-~~**422**~~|~~**Dynamite 81**~~
+**422**|**Dynamite 81**||[**HBO**](https://play.hbomax.com/video/watch/a3c1dded-f633-4569-a9fb-e28d20598274/be3f7c80-997f-495c-b671-c2268ed8b917)|
 423|Dynamite Post Show|[AEW](https://youtu.be/43z4E1W-EiU)
 424|Outside the Ring: Max Caster|[AEW](https://youtu.be/fsTeDmlArBQ)
 ***425***|***IMPACT Wrestling: Rebellion***^[6]||[***FITE***](https://www.fite.tv/watch/impact-wrestling-rebellion-2021/2p8ry/)
@@ -441,50 +441,6 @@ To see a similar list for the first year (and a bit before) of AEW follow the li
 429|Vlog 317: Friend Olympics (aka Old Friend)^[1]|[SG](https://youtu.be/J0e7NGerpf4)
 ~~**430**~~|~~**The House Always Wins**~~
 **431**|**Dark 86**|[**AEW**](https://youtu.be/PzmB23s5Y-s)
-432|Dynamite Pre Show|[AEW](https://youtu.be/ZMnduG8i4Fg)
-~~**433**~~|~~**Dynamite 82**~~
-434|Dynamite Post Show|[AEW](https://youtu.be/bTHzY_Kv1u8)
-435|Will Kenny Omega be STRIPPED of the IMPACT World Title?!^[6]|[IW](https://youtu.be/TKIypVMvjF0)
-**436**|**Kenny Omega LAYS OUT Sami Callihan!**^[6]|[**IW**](https://youtu.be/BNbzkeh5a8E)
-437|Outside the Ring: Sonny Kiss|[AEW](https://youtu.be/U4j82zWfZe0)
-438|Being the Elite 254: Trick Shot^[1]|[BTE](https://youtu.be/qyiK-oOJuz4)
-439|Road to Blood & Guts|[AEW](https://youtu.be/q3lHsYMTyL0)
-**440**|**Dark: Elevation 8**|[**AEW**](https://youtu.be/oReVCtoL8Qk)
-441|Vlog 318: HE STOLE EVERYTHING!!^[1]|[SG](https://youtu.be/jot8USG9eo0)
-**442**|**Dark 87**|[**AEW**](https://youtu.be/HDj69PiNPcM)
-443|Dynamite: Blood & Guts Pre Show|[AEW](https://youtu.be/aR5LZybweoo)
-~~**444**~~|~~**Dynamite 83: Blood & Guts**~~
-445|Dynamite: Blood & Guts Post Show|[AEW](https://youtu.be/36B37lVpPZg)
-446|Kenny Omega & The Good Brothers JUMP FinJuice & Eddie Edwards!^[1]|[IW](https://youtu.be/IbsnLw0DDBs)
-447|Outside the Ring: Nyla Rose|[AEW](https://youtu.be/eo84eRyiVUM)
-448|Being The Elite 225: They Should’ve Put That On Dynamite^[1]|[BTE](https://youtu.be/f6ZEm9OnRi8)
-449|Road to Dynamite|[AEW](https://youtu.be/MktufqDyUD4)
-450|**Dark: Elevation 9**|[**AEW**](https://youtu.be/IeWbuQobv2c)
-451|Vlog 319: Blood & Guts^[1]|[SG](https://youtu.be/hNGpqhEtgtc)
-**452**|**Dark 88**|[**AEW**](https://youtu.be/Thvu_BfaNVI)
-453|Dynamite Pre Show|[AEW](https://youtu.be/RCkmdUOOx1g)
-~~**454**~~|~~**Dynamite 84**~~
-455|Kenny Omega ATTACKS, Chaotic Brawl Breaks Out!^[6]|[IW](https://youtu.be/8gjRVVSmmg4)
-456|Outside the Ring: Anthony Ogogo|[AEW](https://youtu.be/kM-WLb1D_kE)
-***457***|***Under Seige***^[6]|[IW](https://youtu.be/rwl31-YJQck)^[4]|[***IMPACT! +Plus***](https://impactwrestling.com/channel/under-siege-2021-1/video/210515-impactplus-undersiege/)
-458|Being the Elite 256: I’m Thinking Of Laying This Old Body Down^[1]|[BTE](https://youtu.be/bOn_fd7hgNs)
-**459**|**Dark: Elevation 10**|[**AEW**](https://youtu.be/aOgUHHo_2DE)
-460|Vlog 320: Cease And Desist^[1]|[SG](https://youtu.be/DVo3Xa62YD0)
-**461**|**Dark 89**|[**AEW**](https://youtu.be/2oao-u2jvng)
-462|Dynamite Pre Show|[AEW](https://youtu.be/rpdIXK1EPD0)
-~~**463**~~|~~**Dynamite 85**~~
-464|Dynamite Post Show|[AEW](https://youtu.be/5clMx84hv6w)
-465|Kenny Omega & Moose SQUARE OFF!^[6]|[IW](https://youtu.be/9bFSeiFjVio)
-466|Outside the Ring: The Butcher|[AEW](https://youtu.be/tFIJMr8urig)
-467|Being the Elite 257: God, I Loved Those Shoes^[1]|[BTE](https://youtu.be/mW7LVB1YJp4)
-**468**|**Dark: Elevation 11**|[**AEW**](https://youtu.be/MOdEgbAM5Y0)
-469|Vlog 321: Go, I Loved that Belt^[1]|[SG](https://youtu.be/P5FzFnelvko)
-**470**|**Dark 90**|[**AEW**](https://youtu.be/WqC71pKRq_4)
-471|Outside the Ring: Brian Pillman Jr. & Griff Garrison|[AEW](https://youtu.be/7lHGHra3zV4)
-472|Dynamite Pre Show|[AEW](https://youtu.be/-gavZkL7ou8)
-~~**473**~~|~~**Dynamite 86**~~
-474|Dynamite Post Show|[AEW](https://youtu.be/XJmL-HbTsiA)
-475|Countdown to Double or Nothing|[AEW](https://youtu.be/leX8cvhy3js)
 
 [**Guide to Watching AEW - Year 2: Part 2 -->**](https://redd.it/1lij5x3)
 
