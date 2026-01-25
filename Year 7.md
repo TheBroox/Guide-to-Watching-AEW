@@ -176,19 +176,19 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |167|Celebrate Thanksgiving with AEW!|[AEW](http://youtu.be/OiZS6zf-yS0)||
 |168|Decision Time? ^[1]|[BTE](http://youtu.be/J1oW7XzsZcw)||
 |169|Behind The Scenes at an AEW Thanksgiving ^[1]|[BTE](http://youtu.be/R8P28fu6_Ro)||
-|**170**|**Dynamite 319: Blood and Guts**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-46/blood-and-guts-november-12-2025) • [**HBO**](https://play.hbomax.com/video/watch/56309c80-ba7c-4b64-ad8f-f0bd294c4870/aa23a47d-04c9-4ad2-8e40-0af6f239ceb8)|
+|**170**|**Dynamite 319: Blood and Guts**||[**HBO**](https://play.hbomax.com/video/watch/56309c80-ba7c-4b64-ad8f-f0bd294c4870/aa23a47d-04c9-4ad2-8e40-0af6f239ceb8)|
 |171|What Was Going On In That Trailer? ^[1]|[BTE](http://youtu.be/BSKOW7Cw1t4)||
 |**172**|**ROH on Honor Club 141**||[**HC**](https://www.watchroh.com/player/28775/stream)|
-|**173**|**Collision 119**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-49/november-15-2025) • [**HBO**](https://play.hbomax.com/video/watch/e8c38284-0b47-41c3-8059-7e5445617a20/b4bc676a-905c-4b05-a615-b151caf658b8)|
+|**173**|**Collision 119**||[**HBO**](https://play.hbomax.com/video/watch/e8c38284-0b47-41c3-8059-7e5445617a20/b4bc676a-905c-4b05-a615-b151caf658b8)|
 |174|Hey! (EW): The Von Erichs are unhinged!|[AEW](http://youtu.be/p9Qd1MmZW2Q)||
 |175|Close Up w/ Renee Paquette: Colt Cabana|[AEW](http://youtu.be/AqkMluF40VU)||
-|**176**|**Dynamite 320**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-7/episode-47/november-19-2025) • [**HBO**](https://play.hbomax.com/video/watch/656e8704-4c44-4628-850d-f33738c0898c/6e437299-9f8b-4aa9-a87c-8957c9212d8c)|
-|**177**|**Collision 120**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-50/november-19-2025) • [**HBO**](https://play.hbomax.com/video/watch/dbd85a3d-9544-4a00-933b-7c143f094632/c9b2ab9f-aacc-4ed1-bc47-373a985ebe92) ^[7]|
+|**176**|**Dynamite 320**||[**HBO**](https://play.hbomax.com/video/watch/656e8704-4c44-4628-850d-f33738c0898c/6e437299-9f8b-4aa9-a87c-8957c9212d8c)|
+|**177**|**Collision 120**||[**HBO**](https://play.hbomax.com/video/watch/dbd85a3d-9544-4a00-933b-7c143f094632/c9b2ab9f-aacc-4ed1-bc47-373a985ebe92) ^[7]|
 |**178**|**ROH on Honor Club 142**||[**HC**](https://www.watchroh.com/player/28777/stream)|
 |179|Close Up w/ Renee Paquette: "Big Boom" AJ Befumo|[AEW](http://youtu.be/qqRlNI50Des)||
 |180|Countdown to Full Gear|[AEW](http://youtu.be/Ito1K50sbek)|[TNT](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/countdown-to-full-gear-2025)|
 |181|Full Gear: Zero Hour|[AEW](http://youtu.be/KFCbel30Ezw)||
-|**182**|**Saturday Tailgate Brawl: Full Gear**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-3/episode-51/aew-saturday-tailgate-brawl-full-gear-2025) • [**HBO**](https://play.hbomax.com/video/watch/dbd85a3d-9544-4a00-933b-7c143f094632/c9b2ab9f-aacc-4ed1-bc47-373a985ebe92) ^[7]|
+|**182**|**Saturday Tailgate Brawl: Full Gear**||[**HBO**](https://play.hbomax.com/video/watch/dbd85a3d-9544-4a00-933b-7c143f094632/c9b2ab9f-aacc-4ed1-bc47-373a985ebe92) ^[7]|
 |***183***|***Full Gear***||[***HBO***](https://play.hbomax.com/event/8e78f773-edd5-5f16-a235-deb1ea98782a)|
 |184|Backstage at AEW Full Gear 2025 ^[1]|[BTE](http://youtu.be/n1IpSNaTVIo)||
 |185|The 2025 AEW Continental Classic Selection Show|[AEW](http://youtu.be/GEuLVq9dqYY)||
