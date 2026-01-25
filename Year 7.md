@@ -249,7 +249,12 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |**240**|**Collision 127**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-4/episode-2/january-10-2026) • [**HBO**](https://play.hbomax.com/event/9242a7a7-9d14-518e-a3dc-e39db9f4cdc6)|
 |241|Babyface Young Bucks ^[1]|[BTE](http://youtu.be/Hd7OOraxJgY)||
 |242|A Rough Way to Start the Year (Didn’t Expect This) ^[1]|[SG](http://youtu.be/e-J-KZAnT1A)||
-|243|Close Up w/ Renee Paquette:|[AEW](http://youtu.be/NoTQdrajUOE)||
+|243|Close Up w/ Renee Paquette: Marina Shafir|[AEW](http://youtu.be/NoTQdrajUOE)||
+|**244**|**Dynamite 328: Maximum Carnage**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-8/episode-2/maximum-carnage-january-14-2026) • [**HBO**](https://play.hbomax.com/video/watch/e19b7cf3-4cd9-4688-89f6-cb6c146d840c/ef17981d-93ab-4568-88fc-d7b526e65808)|
+|**245**|**Collision 128: Maximum Carnage**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-4/episode-3/maximum-carnage-january-17-2026) • [**HBO**](https://play.hbomax.com/video/watch/a9345f12-cf5b-433b-b997-6d1cb622437b/4419830b-c749-4dde-aab7-fa342fbf1d1c)|
+|246|Watch Us Fly High In Pheonix|[BTE](http://youtu.be/A8pOWkE7X2w)||
+|**247**|**Dynamite 329**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-8/episode-3/january-21-2026) • [**HBO**](https://play.hbomax.com/event/ff65c344-8cd8-5cf3-b660-93d117807486)|
+|**248**|**Collision 129e**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-4/episode-4/january-24-2026) • [**HBO**](https://play.hbomax.com/event/6c8d2da0-c0b1-5255-aa7a-a5479d75d4f4)|
 
 # Key
 
