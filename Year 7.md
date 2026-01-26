@@ -254,7 +254,7 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |**245**|**Collision 128: Maximum Carnage**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-4/episode-3/maximum-carnage-january-17-2026) • [**HBO**](https://play.hbomax.com/video/watch/a9345f12-cf5b-433b-b997-6d1cb622437b/4419830b-c749-4dde-aab7-fa342fbf1d1c)|
 |246|Watch Us Fly High In Phoenix|[BTE](http://youtu.be/A8pOWkE7X2w)||
 |**247**|**Dynamite 329**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-8/episode-3/january-21-2026) • [**HBO**](https://play.hbomax.com/event/ff65c344-8cd8-5cf3-b660-93d117807486)|
-|**248**|**Collision 129e**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-4/episode-4/january-24-2026) • [**HBO**](https://play.hbomax.com/event/6c8d2da0-c0b1-5255-aa7a-a5479d75d4f4)|
+|**248**|**Collision 129**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-4/episode-4/january-24-2026) • [**HBO**](https://play.hbomax.com/event/6c8d2da0-c0b1-5255-aa7a-a5479d75d4f4)|
 
 # Key
 
