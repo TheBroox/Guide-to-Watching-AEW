@@ -8,7 +8,7 @@ This post lists all of the major All Elite Wrestling "kayfabe" content from the 
 | :-: | :-- | :-: | :-: |
 | 1 | Being The Elite 95-117 ^([1])* | [BTE](https://youtu.be/DPq9ktdVhug)
 | 2 | SCU Training For All In ^[1] | [BTE](https://youtu.be/Jzkm6sfiogE)
-| **3** | **All In: Zero Hour** ^[1] | [**Fite**](https://www.fite.tv/watch/all-in-preshow/2o9zc/)^[3]
+| **3** | **All In: Zero Hour** ^[1] | [**Triller**](https://www.trillertv.com/watch/all-in-preshow/2o9zc/)^[3]
 | ***4*** | ***All In*** ^[1] | | [***Triller***](https://www.trillertv.com/watch/all-in/2o7yq/)
 | 5 | Being The Elite 118-133 ^([1])** | [BTE](https://youtu.be/2s2UFD8iP_0)
 | 6 | All Elite Wrestling Press Conference | [AEW](https://youtu.be/vjomsxMy1H0)
