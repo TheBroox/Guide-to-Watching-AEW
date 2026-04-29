@@ -31,7 +31,7 @@ A list of all All Elite Wrestling "kayfabe" content from the sixth year of the c
 |396|EXCLUSIVE: Post Collision words from Max Caster, Kyle Fletcher + More!|[AEW](http://youtu.be/oqWACjscpn4)||
 |397|Countdown to Dynasty|[AEW](http://youtu.be/p9Wyefq5Jw0)||
 |**398**|**Dynasty: Zero Hour**|[**AEW**](http://youtu.be/v_04iPBK-8o)||
-|***399***|***Dynasty***||[***Triller***](https://www.trillertv.com/watch/aew-dynasty-2025/2pgs6/) • [***Amazon***](https://www.amazon.com/AEW-Dynasty-2025/dp/B0DNRRMB6X/)|
+|***399***|***Dynasty***||[***HBO***](https://play.hbomax.com/video/watch/f00f006c-f44f-4122-8ccd-b530fecabf62/4aadbb9f-0cd0-4b39-bde7-e1b081900180) • [***Triller***](https://www.trillertv.com/watch/aew-dynasty-2025/2pgs6/) • [***Amazon***](https://www.amazon.com/AEW-Dynasty-2025/dp/B0DNRRMB6X/)|
 |400|Close-Up w/ Renee Paquette: Kevin Knight|[AEW](http://youtu.be/l_-Rsp0aKbY)|
 |**401**|**Dynamite 288**||[**HBO**](https://play.max.com/video/watch/3633f294-7f80-4e58-b3f4-0fa0f921a8da/796c73e2-b46c-4f1c-84e4-03d96155fa73)|
 |402|EXCLUSIVE: Post Dynamite words from Speedball Mike Bailey, Max Caster, & More!|[AEW](http://youtu.be/K_RunTlMPi4)||
@@ -79,7 +79,7 @@ A list of all All Elite Wrestling "kayfabe" content from the sixth year of the c
 |444|Close Up w/ Renee Paquette: Dustin Rhodes & Sammy Guevara: Sons of Texas!|[AEW](http://youtu.be/JQNZWYChFlQ)||
 |445|Countdown to Double or Nothing|[YouTube](http://youtu.be/woN-LD9HrxY)||
 |**446**|**Double or Nothing: The Buy In**|[**AEW**](http://youtu.be/CcPzc6fvpaE)|[**Amazon**](https://www.amazon.com/AEW-Double-or-Nothing-2025/dp/B0F1WBC4ZV/)^[7] |
-|***447***|***Double or Nothing***||[***Amazon***](https://www.amazon.com/AEW-Double-or-Nothing-2025/dp/B0F1WBC4ZV/)^[7]|
+|***447***|***Double or Nothing***||[***HBO***](https://play.hbomax.com/video/watch/8c198d0d-6ccd-42a3-8f21-07b6edaa7533/f89a0800-15b0-467b-b5cc-af7d6beb6101) • [***Amazon***](https://www.amazon.com/AEW-Double-or-Nothing-2025/dp/B0F1WBC4ZV/)^[7]|
 |448|Vlog 443: AEW Double or Nothing 2025|[SG](http://youtu.be/IE4YtcJndrc)||
 
 [**Guide to Watching AEW - Year 7: Part 1 -->**](https://redd.it/1lepam3)
