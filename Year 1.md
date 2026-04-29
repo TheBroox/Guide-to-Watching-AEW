@@ -24,7 +24,7 @@ This post lists all of the major All Elite Wrestling "kayfabe" content from the 
 | **16** | **Wrestlegate Pro - Pac vs. Hangman Page** ^[2] | [**AEW**](https://youtu.be/gjCSeXMjtJw)
 | 17 | Double or Nothing Press Conference & Weigh In | [Fite](https://www.fite.tv/watch/double-or-nothing-conference/2otzs/)
 | **18** | **Double or Nothing: The Buy-In** | [**AEW**](https://youtu.be/jGoMmEaBAOY) - [**TNT YouTube**](https://youtu.be/gqAyq8bD9HU)
-| ***19*** | ***Double or Nothing*** ||[***Triller***](https://www.trillertv.com/watch/aew-double-or-nothing/2owc4/) • [**HBO**](https://play.max.com/video/watch/239573d9-07d1-4b52-8b75-944945c56828/e004c84f-7505-4e34-a094-7ca886a1c19e)|
+| ***19*** | ***Double or Nothing*** ||[***Triller***](https://www.trillertv.com/watch/aew-double-or-nothing/2owc4/) • [***HBO***](https://play.max.com/video/watch/239573d9-07d1-4b52-8b75-944945c56828/e004c84f-7505-4e34-a094-7ca886a1c19e)|
 | 20 | Kylie Rae's #AEWDoN Post Match Comments | [AEW](https://youtu.be/EgWyopXkjsM)
 | 21 | Before the Bell: The Story of All Elite Wrestling | [AEW](https://youtu.be/YlTBEyrIB9I)
 | 22 | Vlog 219 - Double or Nothing Vlog! ^[1] | [SG](https://youtu.be/xiJfFPsJAmo)
@@ -39,7 +39,7 @@ This post lists all of the major All Elite Wrestling "kayfabe" content from the 
 | 31 | Vlog 225 - Training for Fight for the Fallen ^[1] | [SG](https://youtu.be/wK-8YeInrBo)
 | 32 | The Road to Fight for the Fallen 1-3 | [Nightmare Family YouTube](https://www.youtube.com/watch?v=YD8FcXeWKLE&list=PLavKR_mYCpTcyjYnLoo_SnTJ_eTkEKszD)^[5]
 | **33** | **Fight for the Fallen: The Buy-In** | [**AEW**](https://youtu.be/Ox7k8rK3zAo) - [**TNT YouTube**](https://youtu.be/3jrU5Y2Mdq8) |
-| ***34***|***Fight for the Fallen***||[***Triller***](https://www.trillertv.com/watch/aew-fight-for-the-fallen/2oyso/) • [**HBO**](https://play.max.com/video/watch/25e8b7eb-3205-4fad-909c-d1c1e2faf642/d0cdca8b-d929-47a6-96fd-ae73db22ea4f)|
+| ***34***|***Fight for the Fallen***||[***Triller***](https://www.trillertv.com/watch/aew-fight-for-the-fallen/2oyso/) • [***HBO***](https://play.max.com/video/watch/25e8b7eb-3205-4fad-909c-d1c1e2faf642/d0cdca8b-d929-47a6-96fd-ae73db22ea4f)|
 | 35 | Vlog 226 - Fight for the Fallen Vlog! ^[1] | [Sammy Guevara Vlog](https://youtu.be/_3LYRuwsdf8)
 | 36 | Being The Elite 161-167 ^[1]&Dagger;&Dagger; | [BTE](https://youtu.be/aZIC_18nWAE)
 | 37 | Vlog 230 - Training for All Out ^[1] | [SG](https://youtu.be/6pxmIPjKWJw)
@@ -47,7 +47,7 @@ This post lists all of the major All Elite Wrestling "kayfabe" content from the 
 | 39 | Countdown to All Out | [ITV YouTube](https://youtu.be/VfzCGrbBr3k)
 | 40 | All Out Press Conference & Weigh In | [Fite](https://www.fite.tv/watch/all-out-press-conference-weigh-ins/2ozok/)
 | **41** | **All Out: The Buy-In** | [**AEW**](https://www.youtube.com/watch?v=5Qd_aCTIVRc) - [**TNT YouTube**](https://youtu.be/MPF9WzZpU58) |
-| ***42*** | ***All Out*** | [***AEW***](https://www.youtube.com/watch?v=fZbozxirGcM&list=PLhgMGSqrutF8RJGFArhLo_3qlCH01FQIJ)^[5]|[***Triller***](https://www.trillertv.com/watch/aew-all-out/2p0iu/) • [**HBO**](https://play.max.com/video/watch/6f5c2764-17da-463d-aa94-9f42d963db4c/c7050104-c4f9-4482-8f8e-45528e64d233)|
+| ***42*** | ***All Out*** | [***AEW***](https://www.youtube.com/watch?v=fZbozxirGcM&list=PLhgMGSqrutF8RJGFArhLo_3qlCH01FQIJ)^[5]|[***Triller***](https://www.trillertv.com/watch/aew-all-out/2p0iu/) • [***HBO***](https://play.max.com/video/watch/6f5c2764-17da-463d-aa94-9f42d963db4c/c7050104-c4f9-4482-8f8e-45528e64d233)|
 | 43 | All Out Post Show | [AEW](https://www.youtube.com/watch?v=wXT7armPuIY) - [Fite](https://www.fite.tv/watch/aew-all-out-post-show/2p1n4/)
 | 44 | Vlog 233 - All Out Vlog ^[1] | [Sammy Guevara Vlog](https://youtu.be/6JRAzTFNHFY)
 | 45 | Being The Elite 168-172 ^[1]&Dagger;&Dagger;&Dagger; | [BTE](https://youtu.be/JzMV7FqH-bI)
@@ -82,7 +82,7 @@ This post lists all of the major All Elite Wrestling "kayfabe" content from the 
 | 74 | Countdown to Full Gear | [AEW](https://youtu.be/wykMoy6V8Fo)
 | **75** | **Dark Episode 6 - Charlotte, NC** | [**AEW**](https://youtu.be/0rsIYGxO7FY)
 | **76** | **Full Gear: The Buy-In** | [**AEW**](https://youtu.be/KpGCah44av8)
-| ***77*** | ***Full Gear*** | | [***Triller***](https://www.trillertv.com/watch/aew-full-gear/2p48p/) • [**HBO**](https://play.max.com/video/watch/47bea79d-f0ce-4be1-98fb-1c2861170bcb/940d71a0-4019-478b-afe8-dcaa106ef010)|
+| ***77*** | ***Full Gear*** | | [***Triller***](https://www.trillertv.com/watch/aew-full-gear/2p48p/) • [***HBO***](https://play.max.com/video/watch/47bea79d-f0ce-4be1-98fb-1c2861170bcb/940d71a0-4019-478b-afe8-dcaa106ef010)|
 | 78 | Being The Elite 179 - Backstage At Full Gear ^[1] | [BTE](https://youtu.be/gg08l492B_0)
 |**79**|**Dynamite Episode 7**||[**HBO**](https://play.max.com/video/watch/889b3cec-1bec-4ebb-abad-140a21f19a84/55cd62e1-acb3-4a31-89a7-5b9d607a15b2)|
 | 80 | Being The Elite 180 - This is Supposed To Be Fun ^[1] | [BTE](https://youtu.be/pAaEeRpmxUM)
@@ -187,7 +187,7 @@ This post lists all of the major All Elite Wrestling "kayfabe" content from the 
 | **179** | **Dark Episode 22 - Kansas City, MO** | [**AEW**](https://youtu.be/CEiB3dzO5XI)
 | 180 | Revolution Preshow | [AEW](https://youtu.be/L4o1_toBmDE)
 | **181** | **Revolution: The Buy-In** | [**AEW Twitter**](https://twitter.com/AEWrestling/status/1233914101992230913?s=19) - [**AEW**](https://youtu.be/IMk76A9Dsi0)^[3]
-| ***182*** | ***Revolution*** | | [***Triller***](https://www.trillertv.com/watch/aew-revolution/2p56c/) • [**HBO**](https://play.max.com/video/watch/2f372a8f-0226-403c-a540-28640ed83672/2c4cc0e9-6448-4419-8510-a409cc3ba493)|
+| ***182*** | ***Revolution*** | | [***Triller***](https://www.trillertv.com/watch/aew-revolution/2p56c/) • [***HBO***](https://play.max.com/video/watch/2f372a8f-0226-403c-a540-28640ed83672/2c4cc0e9-6448-4419-8510-a409cc3ba493)|
 | 183 | Coach's Corner w/ Arn Anderson | [AEW](https://youtu.be/SmofIkGEnuA)
 | 184 | Free The Delete Epsiodes 1-9 ^[1,5]♦ | [MATTHARDYBRAND YouTube](https://www.youtube.com/watch?v=LuBRj7UQj3c&list=PLbrOE_sPJFP2KZ04sfbl2SZcDkqthOZIl)
 | 185 | Being the Elite 193 - Revolution ^[1] | [BTE](https://youtu.be/RKcXH-OVveg)
@@ -294,7 +294,7 @@ This post lists all of the major All Elite Wrestling "kayfabe" content from the 
 | 286 | Top Five | [AEW](https://www.youtube.com/watch?v=cESiIvZIIFk)
 | ~~287~~ | ~~Countdown to Double or Nothing~~
 | **288** | **Double or Nothing: The Buy-In** | [**YouTube**](https://youtu.be/Y09Wf8zYq8o) - [**Fite**](https://www.fite.tv/watch/aew-double-or-nothing-buy-in-2020/2p79b/)
-| ***289*** | ***Double or Nothing*** | | [***Triller***](https://www.trillertv.com/watch/aew-double-or-nothing-2020/2p72j/) • [**HBO**](https://play.max.com/video/watch/59572b10-2571-4f48-ad56-d2fc7c13a089/30565f22-2a3e-4958-b23e-5b0b21df6f1a)|
+| ***289*** | ***Double or Nothing*** | | [***Triller***](https://www.trillertv.com/watch/aew-double-or-nothing-2020/2p72j/) • [***HBO***](https://play.max.com/video/watch/59572b10-2571-4f48-ad56-d2fc7c13a089/30565f22-2a3e-4958-b23e-5b0b21df6f1a)|
 | 290 | Double or Nothing Post Show | [AEW](https://youtu.be/rGed_wO0Pxw)
 |291|Being the Elite 205: Stadium Stampede ^[1]|[BTE](https://youtu.be/Eq4RVtmcYlQ)
 |292|Vlog 275: Stadium Stampede ^[1]|[SG](https://youtu.be/T7tXJ4SKBfY)
