@@ -11,10 +11,10 @@ A list of all All Elite Wrestling "kayfabe" content from the fifth year of the c
 |1|BTE #349: Anarchy in the Arena ^(\[1\])|[BTE](http://youtu.be/Pxc5eVMiF_Y)||
 |2|Road to San Diego|[AEW](http://youtu.be/qXl-HzbuAWs)||
 |3|Control Center: San Diego|[AEW](http://youtu.be/tkSyAEw_mq4)||
-|**~~4~~**|**~~Dynamite 191~~**|||
+|**4**|**Dynamite 191**||[**HBO**](https://play.hbomax.com/video/watch/f41971a5-fc8d-47f2-bbad-95faaa54ec44/26a09855-17a5-4e9d-afdb-b374174b8011)|
 |**5**|**ROH on Honor Club 14**||[**HC**](https://www.watchroh.com/player/28299/stream)|
 |6|Exclusive: Dralistico, Komander & El Hijo Del Vikingo Entrances|[AEW](http://youtu.be/asN00U3f1XQ)||
-|**~~7~~**|**~~Rampage 95: Championship Friday~~**|||
+|**7**|**Rampage 95: Championship Friday**||[**HBO**](https://play.hbomax.com/video/watch/48044b28-1a45-4feb-802a-9bc315d6d38c/a3d6353b-3272-439f-be43-5b2e69491c24)|
 |**~~8~~**|**~~House Rules: Tupelo, MI~~**|||
 |**~~9~~**|**~~House Rules: Huntsville, AL~~**|||
 |10|Hey! (EW): Taya Valkyrie Keeps it Loca|[AEW](http://youtu.be/rSL7HaUr46g)||
@@ -25,10 +25,10 @@ A list of all All Elite Wrestling "kayfabe" content from the fifth year of the c
 |15|Vlog 410: Double or Nothing 2023 ^(\[1\])|[SG](http://youtu.be/use1_LqEokg)||
 |16|Road to Colorado Springs|[AEW](http://youtu.be/_eokECd_zOU)||
 |17|Control Center: Colorado Springs|[AEW](http://youtu.be/9f7a_HOC1pY)||
-|**~~18~~**|**~~Dynamite 192~~**|||
+|**18**|**Dynamite 192**||[**HBO**](https://play.hbomax.com/video/watch/8c79e4a1-a3be-4829-a437-73ff9993590f/e94d17e2-fefc-4ab0-82ce-6e3d8853ebe9)|
 |**19**|**ROH on Honor Club 15**||[**HC**](https://www.watchroh.com/player/28300/stream)|
 |20|Exclusive: Big Bill, Lee Moriarty, & Ethan Page vs. Lucha Bros & Bandido entrances|[AEW](http://youtu.be/VeY2QgzKwY0)||
-|**~~21~~**|**~~Rampage 96~~**|||
+|**21**|**Rampage 96**||[**HBO**](https://play.hbomax.com/video/watch/47ed451f-2302-4002-a333-7c1ec72599e3/725b256b-1ff9-47a0-b336-88ad5464b74d)|
 |22|Exclusive: Hardy Dance Off!|[AEW](http://youtu.be/_VFAxZ7I0gE)||
 |23|AEW Stars celebrate the incredibly talented and magnificent seamstress Ms. Sandra!|[AEW](http://youtu.be/kVQKKcvr92A)||
 |24|Hey! (EW): Skye Blue Did What!?|[AEW](http://youtu.be/WbX0-jgKRMM)||
@@ -36,30 +36,30 @@ A list of all All Elite Wrestling "kayfabe" content from the fifth year of the c
 |26|Road to Washington DC|[AEW](http://youtu.be/EbyCK2_KDTE)||
 |27|Control Center: Washington DC|[AEW](http://youtu.be/epBkyeGfas4)||
 |28|Will Ospreay vs Kenny Omega at Forbidden Door! ^(\[6\])|[NJPW YouTube](http://youtu.be/WrX0KjHtVmk)||
-|**~~29~~**|**~~Dynamite 193~~**|||
+|**29**|**Dynamite 193**||[**HBO**](https://play.hbomax.com/video/watch/4bbb0cfe-66bd-434c-9759-6c570ccd2459/8072ddd8-9eaf-4a1f-ab0f-0a65b37fc596)|
 |**30**|**ROH on Honor Club 16**||[**HC**](https://www.watchroh.com/player/28301/stream)|
 |31|Exclusive: Best Friends + Rocky Romero vs. United Empire entrances|[AEW](http://youtu.be/JGIXseXC-7w)||
-|**~~32~~**|**~~Rampage 97~~**|||
+|**32**|**Rampage 97**||[**HBO**](https://play.hbomax.com/video/watch/bdb43b77-b0e8-4dc8-9aaf-ae9c0cf53c21/c611f26c-ae07-4597-bebb-9e8e051d7b1a)|
 |33|Control Center: Chicago|[AEW](http://youtu.be/BxYQEnQ9JOs)||
-|**~~34~~**|**~~Collision 1~~**|||
+|**34**|**Collision 1**||[**HBO**](https://play.hbomax.com/video/watch/8b576c21-c483-4a28-8ba1-fb4daba79f38/f3311180-63da-4565-8811-f9fbf59e10fc)|
 |35|Hey! (EW): The Refs Reveal All!|[AEW](http://youtu.be/QbjnTMbUfv0)||
 |36|The Forbidden Door|[NJPW YouTube](http://youtu.be/LRVhDQGXYiE)||
 |37|BTE 352: Anatomically Misleading Name ^(\[1\])|[AEW](http://youtu.be/2GRu-Kt8ZgA)||
 |38|Road to Chicago|[AEW](http://youtu.be/9RYR64JUmCw)||
 |39|Control Center: Chicago|[AEW](http://youtu.be/njeEZjSb8Lc)||
 |40|Will Ospreay prepares for a Forbidden Rematch with Kenny Omega ^(\[6\])|[NJPW YouTube](http://youtu.be/j33JA-pBZN0)||
-|**~~41~~**|**~~Dynamite 194~~**|||
+|**41**|**Dynamite 194**||[**HBO**](https://play.hbomax.com/video/watch/561561d6-7e36-4ba2-a001-410ae9c59eae/c040c331-120f-4524-a0a3-690ef5f8ec67)|
 |42|Post-Show Comments From CM Punk, FTR, Bullet Club Gold, Matt Hardy & more|[AEW](http://youtu.be/zyMEYNXJeEk)||
 |43|MJF vs Hiroshi Tanahashi at Forbidden Door! ^(\[6\])|[NJPW YouTube](http://youtu.be/wLerwXY2gBk)||
 |44|Takeshita, Umino & Blackpool Combat Club vs Kingston, Ishii & The Elite at Forbidden Door! ^(\[6\])|[NJPW YouTube](http://youtu.be/n_RFKuqRGgo)||
 |**45**|**ROH on Honor Club 17**||[**HC**](https://www.watchroh.com/player/28302/stream)|
 |46|Exclusive: CHAOS vs. United Empire & Swerve Strickland entrances|[AEW](http://youtu.be/rivNl2EvPLQ)||
-|**~~47~~**|**~~Rampage 98~~**|||
+|**47**|**Rampage 98**||[**HBO**](https://play.hbomax.com/video/watch/e3ef796f-6068-46d1-b74f-44419a4926bc/964acf59-2845-4725-96aa-b0b439e137c6)|
 |48|Countdown to Forbidden Door|[AEW](http://youtu.be/rgJq1-MTelE)||
 |49|Jon Moxley talks BCC at Forbidden Door! ^(\[6\])|[NJPW YouTube](http://youtu.be/wXgNfmEnaiQ)||
 |50|Forbidden Door Preview|[NJPW YouTube](http://youtu.be/WAyS_NK3sQE)||
 |51|Control Center: Toronto|[AEW](http://youtu.be/YZRAthsupnQ)||
-|**~~52~~**|**~~Collision 2~~**|||
+|**52**|**Collision 2**||[**HBO**](https://play.hbomax.com/video/watch/73bb333c-a770-420d-a524-8a293656c82a/57685d2f-4121-4548-8ac2-7e509a680764)|
 |53|Jack Perry vs SANADA at Forbidden Door!|[NJPW YouTube](http://youtu.be/Aw0810rqOm4)||
 |54|Sting, Allin & Naito vs Jericho, Suzuki & Guevara at Forbidden Door!|[NJPW YouTube](http://youtu.be/0F28dtjcFuU)||
 |55|Control Center Forbidden Door|[AEW](http://youtu.be/b7Pel_0eRV4)||
@@ -69,10 +69,10 @@ A list of all All Elite Wrestling "kayfabe" content from the fifth year of the c
 |59|BTE 353: Forbidden Door 2023|[BTE](http://youtu.be/rsuBxFSs3sc)||
 |60|Vlog 411: “Goodbye Friend” Forbidden Door 2023 ^(\[1\])|[SG](http://youtu.be/UH9_juORFJg)||
 |61|Control Center: Hamilton, Ont.|[AEW](http://youtu.be/HpybSanyAMg)||
-|**~~62~~**|**~~Dynamite 195~~**|||
+|**62**|**Dynamite 195**||[**HBO**](https://play.hbomax.com/video/watch/e5b287bf-344b-4e56-98fe-e4850f141429/18b7ea56-05a7-4f6b-b0a2-2cf01bfba343)|
 |**63**|**ROH on Honor Club 18**||[**HC**](https://www.watchroh.com/player/28308/stream)|
 |64|Exclusive: ROH World Champion, Claudio Castagnoli & Komander Entrances!|[AEW](http://youtu.be/w6iUY7HlUfE)||
-|**~~65~~**|**~~Rampage 99~~**|||
+|**65**|**Rampage 99**||[**HBO**](https://play.hbomax.com/video/watch/9aa81cdd-6955-49f8-bd31-93fd15dcbcaa/eabc9fa5-0e59-4bfd-b1de-d329613787d4)|
 |66|Control Center: Hamilton|[AEW](http://youtu.be/MmycOFZJDus)||
 |**~~67~~**|**~~Collision 3~~**|||
 |68|AEW Mini Doc: All Ego Ethan Page Comes Home|[AEW](http://youtu.be/gqix_TYVcRo)||
