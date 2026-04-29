@@ -441,7 +441,6 @@ To see a similar list for the first year (and a bit before) of AEW follow the li
 |**Bold**|Features first aired wrestling match(es)
 |:-:|:--
 *Italics*|Pay-Per-View
-~~Strikethrough~~|Content is no longer available to stream
 
 # Sources
 |AEW|All Elite Wrestling YouTube
