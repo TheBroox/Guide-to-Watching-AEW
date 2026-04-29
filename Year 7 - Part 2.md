@@ -8,6 +8,9 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 
 |**#**|**Program/Event**|**Free**|**Premium**|
 |:-:|:--|:-:|:-:|
+|**324**|**Dynamite 340**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-8/episode-14/april-8-2026) • [**HBO**](https://play.hbomax.com/video/watch/df9fb273-b89d-4ca4-8f1a-4a0dd59bc077/fdd2855e-1c6a-4845-bef0-bb518c0c379c)||
+|325|Everything You Need to Know About AEW Dynasty 2026|[AEW](http://youtu.be/ARdGyKk8sJU)||
+|**326**|**ROH on Honor Club 161**||[**HC**](https://www.watchroh.com/player/28814/stream)|
 |**327**|**ROH YouTube Special Episode 6**|[**ROH**](http://youtu.be/kiaeVbwNpgw)||
 |**328**|**Collision 140**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-4/episode-16/april-11-2026) • [**HBO**](https://play.hbomax.com/video/watch/27484ced-84dd-4b3d-a86f-877fb3bde416/0f760839-461a-4155-b3e7-337d7c26373e)|
 |329|Countdown to AEW Dynasty 2026|[AEW](http://youtu.be/q_3JavrtweM)|[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-4/countdown-to-dynasty-2026-april-11-2026)|
@@ -15,7 +18,7 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |***331***|***Dynasty***||[***HBO***](https://play.hbomax.com/event/a61c3619-4285-5ead-8390-08eb625daffa) • [***Amazon***](https://www.amazon.com/gp/video/detail/B0GH258XGZ/ref=atv_sr_fle_c_Tn74RA_4_2_4)|
 |332|Behind the scenes of the emotional return of Kyle O'Reilly|[AEW](http://youtu.be/WfLsTPFc2KI)||
 |333|AEW Dynasty 2026|[BTE](http://youtu.be/83SDMTkoPNU)||
-|334|I Challenged Kurt Angle (Bad idea)|[SG](http://youtu.be/ND_ILi4H3bA)||
+|334|Vlog 460: I Challenged Kurt Angle (Bad idea)|[SG](http://youtu.be/ND_ILi4H3bA)||
 |335|Darby Allin vs MJF AEW World Championship Spring BreakThru Preview|[AEW](http://youtu.be/n3jj3f6p4D8)||
 |336|AEW Close Up w/ Renee Paquette: Darby Allin [Extended Edition]|[AEW](http://youtu.be/aV7BqDiQG0k)||
 |**337**|**Dynamite 341: Spring Breakthru**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-8/episode-15/dynamite-spring-breakthru-april-15-2026) • [**HBO**](https://play.hbomax.com/video/watch/8e7c1ae2-3da6-4e44-9106-fea111dd1da4/c926c891-15f5-470c-953a-2668a83ce8bc)||

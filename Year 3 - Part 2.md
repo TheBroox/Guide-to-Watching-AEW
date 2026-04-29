@@ -102,7 +102,6 @@ To see a similar list for the second year of AEW follow the link below:
 |**Bold**|Features first aired wrestling match(es)
 |:-:|:--
 *Italics*|Pay-Per-View
-~~Strikethrough~~|Content is no longer available to stream
 ---|Content is not yet available to stream
 
 # Sources
