@@ -253,7 +253,7 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |**244**|**Dynamite 328: Maximum Carnage**||[**HBO**](https://play.hbomax.com/video/watch/e19b7cf3-4cd9-4688-89f6-cb6c146d840c/ef17981d-93ab-4568-88fc-d7b526e65808)|
 |**245**|**ROH on Honor Club 150**||[**HC**](https://www.watchroh.com/player/28794/stream)|
 |**246**|**Collision 128: Maximum Carnage**||[**HBO**](https://play.hbomax.com/video/watch/a9345f12-cf5b-433b-b997-6d1cb622437b/4419830b-c749-4dde-aab7-fa342fbf1d1c)|
-|247|Watch Us Fly High In Phoenix|[BTE](http://youtu.be/A8pOWkE7X2w)||
+|247|Watch Us Fly High In Phoenix ^[1]|[BTE](http://youtu.be/A8pOWkE7X2w)||
 |**248**|**Dynamite 329**||[**HBO**](https://play.hbomax.com/video/watch/b0ee1107-4518-4fc9-96bf-f2fd0283d53a/ae963553-31f6-47cc-ab09-0ab7071644e8)|
 |**249**|**ROH on Honor Club**||[**HC**](https://www.watchroh.com/player/28795/stream)|
 |**250**|**Collision 129**||[**HBO**](https://play.hbomax.com/video/watch/c9d5fcbb-5fa2-4905-87b8-ac8569c84c49/55e174a7-4373-4335-aa61-105f1714212c)|
@@ -261,11 +261,11 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |**252**|**Dynamite 330**||[**HBO**](https://play.hbomax.com/video/watch/355e6501-4252-4e0c-ae6a-51c1a2fd34b7/d430acf5-9cc4-46d3-8fc7-0acf790b4444)|
 |**253**|**ROH on Honor Club 152**||[**HC**](https://www.watchroh.com/player/28796/stream)|
 |**254**|**Collision 130**||[**HC**](https://play.hbomax.com/video/watch/a5957c80-ddc9-4508-85fd-69fd7adbcf84/cb0c8d44-3dc7-4452-8f5e-6c4394a7e5de)|
-|255|BTE Mailbag Returns!|[BTE](http://youtu.be/OhuCU6LiVZw)||
+|255|BTE Mailbag Returns! ^[1]|[BTE](http://youtu.be/OhuCU6LiVZw)||
 |**256**|**Dynamite 331**||[**HBO**](https://play.hbomax.com/video/watch/66cacaa8-36af-4440-9d4b-662a971d800f/e806871b-ce38-4682-ac0c-adc40c823a22)|
 |**257**|**ROH on Honor Club 153 - Global Wars: ROH x MPX**||[**HC**](https://www.watchroh.com/player/28797/stream)|
 |**258**|**Collision 131**||[**HC**](https://play.hbomax.com/video/watch/b5b1956c-55db-46d1-9bce-c5e935088458/e5604abc-3cd7-4a94-8bd4-903133725f83)|
-|259|Young Bucks Do Vegas|[BTE](http://youtu.be/wbk9Dlbbj3w)||
+|259|Young Bucks Do Vegas ^[1]|[BTE](http://youtu.be/wbk9Dlbbj3w)||
 |260|"Who is?" Kevin Knight|[AEW](http://youtu.be/vwo_C2WqP5Q)||
 |261|Close Up w/ Renee Paquette: Tommaso Ciampa|[AEW](http://youtu.be/_Anl6htaedU)||
 |**262**|**Dynamite 332**||[**HBO**](https://play.hbomax.com/video/watch/5b6e6b9f-fa61-4c0e-9e97-bc86beb2a42e/d1de985d-3c84-4719-9344-166c7bc15909)|
@@ -273,28 +273,28 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |264|Johnny Loves Taya Season 2 Episode 1: Hollywood Dogs|[AEW](http://youtu.be/yEgf_u7oc8c)||
 |**265**|**Grand Slam Australia**||[**HBO**](https://play.hbomax.com/video/watch/f95225e4-0464-4ab4-9e99-bc897ead3eac/653d9fff-140a-4eaa-b237-27d1512255be)|
 |~~**266**~~|~~**House Rules: Australia**~~|||
-|267|Young Bucks Come Home|[BTE](http://youtu.be/cHty6T6bqwg)||
+|267|Young Bucks Come Home ^[1]|[BTE](http://youtu.be/cHty6T6bqwg)||
 |**268**|**Dynamite 333**||[**HC**](https://play.hbomax.com/video/watch/ca8f374e-8d52-43ac-8803-14d5b9cbdd5b/a55a50d3-49be-4081-85ce-95fbae73b97e)|
 |**269**|**ROH on Honor Club 155**||[**HC**](https://www.watchroh.com/player/28799/stream)|
 |270|Johnny Loves Taya Season 2 Episode 2: Respect The Squirrels|[AEW](http://youtu.be/0ugqfaVt0cQ)||
 |**271**|**Collision 132**||[**HC**](https://play.hbomax.com/video/watch/82692d6f-489f-4db4-a3de-759a60f69213/9b8348df-fcb0-4cb9-b9ea-b97de291c258)|
 |272|EXCLUSIVE FOOTAGE: AEW World Champion MJF & Andrade get in HEATED confrontation!|[AEW](http://youtu.be/Bq-_WqRNli0)|
 |273|EXCLUSIVE: AEW Women's World Champion Thekla sends a warning to all of her future challengers!|[AEW](http://youtu.be/XK3iTZAnps4)||
-|274|FTR Attack The Jackson Family|[BTE](http://youtu.be/94--OYdVqAc)||
+|274|FTR Attack The Jackson Family ^[1]|[BTE](http://youtu.be/94--OYdVqAc)||
 |275|"Who Is?": Shawn Dean|[AEW](http://youtu.be/9yNpN7dXXhs)||
 |276|Close Up w/ Renee Paquette: Roderick Strong|[AEW](http://youtu.be/PxMVeWtq5Q0)||
 |**277**|**Dynamite 334**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-8/episode-8/february-25-2026) • [**HBO**](https://play.hbomax.com/video/watch/b7366f54-4891-43b8-abe8-728396aef256/1f6cbae0-dc06-4d93-a9da-c0cac66633cd)|
 |**278**|**ROH on Honor Club 156**||[**HC**](https://www.watchroh.com/player/28800/stream)|
 |279|Johnny Loves Taya Season 2 Episode 3: Movieland Murders|[AEW](http://youtu.be/pC_zB-M7NgM)|
 |**280**|**Collision 133**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-4/episode-9/february-28-2026) • [**HBO**](https://play.hbomax.com/video/watch/cbd35ba0-bab9-4d4d-a335-28b2f731d97c/1123c4fb-8788-4c5a-8a51-93ab588144b8)|
-|281|Mile High Madness|[BTE](http://youtu.be/SD_ostJeiUM)||
-|282|Vlog 455: I Didn’t Want To Say This… But|[SG](http://youtu.be/sy_8RaTDQmg)||
+|281|Mile High Madness ^[1]|[BTE](http://youtu.be/SD_ostJeiUM)||
+|282|Vlog 455: I Didn’t Want To Say This… But ^[1]|[SG](http://youtu.be/sy_8RaTDQmg)||
 |**283**|**Dynamite 335**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-8/episode-9/march-4-2026) • [**HBO**](https://play.hbomax.com/video/watch/0c8906bc-0e06-4c6b-bb81-185c7bdd4d92/8531b196-b0ef-4ff9-a706-06f56f4affb4)|
 |284|Everything You Need to Know About AEW: How to Become an All Elite Wrestling Fan|[AEW](http://youtu.be/G6rCEvH41ds)||
 |**285**|**ROH on Honor Club 157**||[**HC**](https://www.watchroh.com/player/28807/stream)|
 |286|Johnny Loves Taya Season 2 Episode 4: Wigs & Grenades|[AEW](http://youtu.be/jIwV9JEDR7M)||
 |**287**|**Collision 134**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-4/episode-10/march-7-2026) • [**HBO**](https://play.hbomax.com/video/watch/dde70439-e39f-4364-8072-19e61df3afc8/eae4f008-e3a2-4e1e-8ffc-889cf18b2deb)|
-|288|Dax Punches Out Cutler|[BTE](http://youtu.be/TzNFb1txrlY)||
+|288|Dax Punches Out Cutler ^[1]|[BTE](http://youtu.be/TzNFb1txrlY)||
 |289|Introducing MyAEW: A new world of All Elite Wrestling for fans around the world!|[AEW](http://youtu.be/vKkiIG78Y6w)||
 |290|Close Up w/ Renee Paquette: Jon Moxley|[AEW](http://youtu.be/E7fYp-th3yI)||
 |**291**|**Dynamite 336**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-8/episode-10/march-11-2026) • [**HBO**](https://play.hbomax.com/video/watch/aac04a7a-b517-4de3-a38f-64c2b4184443/d2d3eafc-1a16-427c-88db-07a17a5b2c5e)|
@@ -307,29 +307,28 @@ A list of all All Elite Wrestling "kayfabe" content from the seventh year of the
 |298|Countdown to Revolution|[AEW](http://youtu.be/lG6-3LEPTMc)|[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-4/countdown-to-revolution-2026)|
 |**299**|**Revolution: Zero Hour**|[**AEW**](http://youtu.be/MzhmIiHR-PE)|[**Amazon**](https://www.amazon.com/gp/video/detail/B0GPZVLVC3/ref=atv_sr_fle_c_Tn74RA_15_2_15)|
 |***300***|***Revolution***||[***HBO***](https://play.hbomax.com/event/49d3f4fc-bea9-5e85-bdfc-47d8a9b836d4) • [***Amazon***](https://www.amazon.com/gp/video/detail/B0GPD24LZ8/ref=atv_sr_fle_c_Tn74RA_5_2_5)|
-|301|AEW REVOLUTION 2026|[BTE](http://youtu.be/LSKufSpb4Zg)||
-|302|Vlog 456: Traveling With A 2-Year-Old… Wish Us Luck|[SG](http://youtu.be/JrvpywH2tBY)||
+|301|AEW REVOLUTION 2026 ^[1]|[BTE](http://youtu.be/LSKufSpb4Zg)||
+|302|Vlog 456: Traveling With A 2-Year-Old… Wish Us Luck ^[1]|[SG](http://youtu.be/JrvpywH2tBY)||
 |**303**|**Dynamite 337**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-8/episode-11/march-18-2026) • [**HBO**](https://play.hbomax.com/video/watch/ca23df3c-8fda-4e44-95c8-f57c81e8e9e7/a5e1dfcd-8fc2-4ae1-9f0f-2c0775a73f50)|
 |304|EXCLUSIVE: "Timeless" Toni Storm has been taken out backstage!|[AEW](http://youtu.be/vj8HyoX2n48)||
 |**305**|**ROH on Honor Club 159**||[**HC**](https://www.watchroh.com/player/28810/stream)|
 |306|Johnny Loves Taya Season 2 Episode 6: The Grenader|[AEW](http://youtu.be/XcaWnBMhYpQ)||
 |**307**|**Collision 136: Slam Dunk Saturday**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-4/episode-12/collision-slam-dunk-saturday-2026) • [**HBO**](https://play.hbomax.com/video/watch/e95a6de4-db88-47cd-8bb2-c52e04156d80/493ec0c1-4018-492a-b49b-2ad118226ae6)^[7]|
 |**308**|**Collision 137:Slam Dunk Sunday**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-4/episode-13/collision-slam-dunk-sunday-2026) • [**HBO**](https://play.hbomax.com/video/watch/e95a6de4-db88-47cd-8bb2-c52e04156d80/493ec0c1-4018-492a-b49b-2ad118226ae6)^[7]|
-|309|Copeland, Christian & Young Bucks Share A Ring!|[BTE](http://youtu.be/MFYiueW7NU0)||
-|310|Vlog 457: I Waited Years for This Match… (Amazing Red)|[SG](http://youtu.be/ymtu28z5KQY)||
+|309|Copeland, Christian & Young Bucks Share A Ring! ^[1]|[BTE](http://youtu.be/MFYiueW7NU0)||
+|310|Vlog 457: I Waited Years for This Match… (Amazing Red) ^[1]|[SG](http://youtu.be/ymtu28z5KQY)||
 |311|Close Up w/ Renee Paquette: Adam Copeland & Christian Cage|[AEW](http://youtu.be/Wg-uumep6Tk)||
 |**312**|**Dynamite 338**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-8/episode-12/march-25-2026) • [**HBO**](https://play.hbomax.com/video/watch/d2c3d9e4-5f0f-4213-b9da-1cd29f2c8d2b/2e0bfb99-59c5-4ab6-a3a1-fbabcfd332f3)|
 |**313**|**ROH on Honor Club 160**||[**HC**](https://www.watchroh.com/player/28811/stream)|
 |***314***|***Global Wars: Canada***||[***HC***](https://www.watchroh.com/player/28822/stream)|
 |**315**|**Collision 138**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-4/episode-14/march-28-2026) • [**HBO**](https://play.hbomax.com/video/watch/1905502e-9500-4213-a21a-1b189382899b/93aebfdd-1659-4618-85dd-40b3644092a6)|
 |316|Everything You Need to Know About All Elite Wrestling's MJF|[AEW](http://youtu.be/WgCJ-OO-H_Y)||
-|317|Vlog 458: Still Champions… Because We NEVER Lost|[SG](http://youtu.be/3A7f9l9GPwQ)||
+|317|Vlog 458: Still Champions… Because We NEVER Lost ^[1]|[SG](http://youtu.be/3A7f9l9GPwQ)||
 |**318**|**Dynamite 339**||[**TBS**](https://www.tbs.com/shows/all-elite-wrestling-dynamite/season-8/episode-13/april-1-2026) • [**HBO**](https://play.hbomax.com/video/watch/259b3d38-688e-4e55-9bc8-3666da05ea37/8eaf2033-8725-4417-8e00-cc8c52b27378)|
 |**319**|**Collision 139**||[**TNT**](https://www.tntdrama.com/shows/all-elite-wrestling-collision/season-4/episode-15/april-2-2026) • [**HBO**](https://play.hbomax.com/video/watch/d0ef21e1-4186-497c-8c62-3e52b63fe816/be6df0b6-83bd-4952-a4a4-3a6f7589ab59)|
 |320|"Who Is?": Renee Paquette|[AEW](http://youtu.be/Wzj29yrWP7U)||
 |321|Close Up w/ Renee Paquette: Divine Dominion|[AEW](http://youtu.be/vu2Zu0pp-VQ)|
-|322|Vlog 459: things went horribly wrong… I lost the title|[SG](http://youtu.be/7ttOyMtLNHk)||
-|323|Will Ospreay returns to Japan, asks United Empire for help 🇯🇵|[AEW](http://youtu.be/JTkuS1Xtqqw)||
+|322|Vlog 459: things went horribly wrong… I lost the title ^[1]|[SG](http://youtu.be/7ttOyMtLNHk)||
 
 [**Guide to Watching AEW - Year 7: Part 2 -->**](https://redd.it/1syqiia)
 

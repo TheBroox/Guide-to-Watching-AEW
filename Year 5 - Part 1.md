@@ -486,7 +486,6 @@ A list of all All Elite Wrestling "kayfabe" content from the fifth year of the c
 |**494**|**ROH on Honor Club 55**||[**HC**](https://www.watchroh.com/player/28559/stream)|
 |~~**495**~~|~~**Rampage 136**~~|||
 |~~**496**~~|~~**Collision 38**~~|||
-|497|EXCLUSIVE! Hear from Kyle O'Reilly, Lee Moriarty, & The Infantry!|[AEW](http://youtu.be/CUPx87_E4Vk)||
 
 [**Guide to Watching AEW - Year 5: Part 2 -->**](https://redd.it/1bvvv83)
 

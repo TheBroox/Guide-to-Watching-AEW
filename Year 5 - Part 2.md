@@ -8,6 +8,7 @@ A list of all All Elite Wrestling "kayfabe" content from the fifth year of the c
 
 |**#**|**Program/Event**|**Free**|**Premium**|
 |:-:|:--|:-:|:-:|
+|497|EXCLUSIVE! Hear from Kyle O'Reilly, Lee Moriarty, & The Infantry!|[AEW](http://youtu.be/CUPx87_E4Vk)||
 |498|Hey! (EW): Serena Deeb Gets Schooled|[AEW](http://youtu.be/WKM4rZ-g5rg)||
 |499|Being the Dark Order Ep 17: Uno is the Loneliest Number ^(\[1\])|[BTE](http://youtu.be/kC3gepN_xIs)||
 |500|Johnny Loves Taya Ep 6: Flips, Tricks, and Fenix|[AEW](http://youtu.be/w2RO8OlF4sw)||
